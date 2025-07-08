@@ -15,6 +15,7 @@ window.addEventListener('DOMContentLoaded', () => {
     .then(chapterNames => {
       const name = chapterNames[chapterNum] || "Untitled";
       chapterTitle.textContent = `Chapter ${chapterNum}: ${name}`;
+      document.title = `Chapter ${chapterNum}: ${name}`;
 
       return fetch(`chapters/chapter${chapterNum}.md`);
     })
