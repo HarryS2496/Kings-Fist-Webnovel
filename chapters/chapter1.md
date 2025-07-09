@@ -1,4 +1,4 @@
-<h2>750, 3rd of Quadedre</h2>
+<h3>750, 3rd of Quadedre</h3>
 
 Gerwyn Ashwright finally made it to the top of the old watchtower.   
 
@@ -120,7 +120,8 @@ He wasn’t sure why, and he couldn’t stand himself for it.
 
 But he still lived, and his heart still pulsed.
 
-
+<br>
+<br>
 
 The descent from the tower was heavier than the ascent.  
 
@@ -178,7 +179,8 @@ As the castle became closer, his chest tightened, and he uttered a name.
 
 “Shen…”
 
-
+<br>
+<br>
 
 He arrived at the castle entrance.   
 

@@ -1,4 +1,4 @@
-<h2>742, 27th of Quinedre</h2>
+<h3>742, 27th of Quinedre</h3>
 
 Gerwyn was nine again, lost in a vivid memory.  
 
@@ -129,9 +129,7 @@ Ever growing dread crept up as he looked back at her.
 <br>
 <br>
 
-<h2>750, 4th of Quadedre</h2>
-
-
+<h3>750, 4th of Quadedre</h3>
 
 The sunlight suddenly assaulted Gerwyn’s eyes and jolted him awake.  
 

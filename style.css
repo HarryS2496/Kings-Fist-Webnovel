@@ -35,6 +35,12 @@ h2 {
   margin: 10px auto;
 }
 
+h3 {
+  font-size: 1.7em;
+  text-align: center;
+  margin: 10px auto;
+}
+
 a {
   color: #5846c0;
   text-decoration: none;
