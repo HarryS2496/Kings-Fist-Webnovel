@@ -60,9 +60,9 @@ There was some space between the door and the front desk to Gerwyn’s right, wh
 
 <br>
 
-<p class="center-bold-and-italics">Every text must be tracked; come to this desk before you leave with one.</p>
+<p class="center bold italics">Every text must be tracked; come to this desk before you leave with one.</p>
 
-<p class="center-bold-and-italics">Every text must be placed where it was found.</p>
+<p class="center bold italics">Every text must be placed where it was found.</p>
 
 <br>
 
