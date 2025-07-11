@@ -253,7 +253,7 @@ Georg knocked back his glass of wine in one gulp, exhaling a refreshed breath.
 
 Though his cheeks gained a rose tint, he did not stagger.   
 
-“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? That little brother turned his magic into something real special. I’ve read about the magic theory – using both wind and earth to predict movement – but never thought one of our own would try and master it.”  
+“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? That little brother turned his magic into something real special. I’ve read about the theory – using both wind and earth to predict movement – but never thought one of our own would try and master it.”  
 
 Victor nodded. “It is unorthodox for Ashwright’s warriors, but in this day and age, we need versatility in might. Proper discipline will set those three on the right path. Gehenna lags behind; I will not permit her to drift further.”  
 
