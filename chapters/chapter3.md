@@ -224,7 +224,7 @@ As the maid walked off, Gehenna immediately walked over to the large closet in a
 
 She grabbed a small bag of her essentials on the cabinet before departing. On her way out, she saw her twin brother closing the door behind his room, and they noticed each other right away. She could tell from his damp hair that he recently got out of the bath. The red tunic, black pants, and satchel he wore were nothing she hadn’t seen before.  
 
-*It’s rare of him to be ready for the day this early, and before me, too. That fresh look of his shows potential, but he still isn’t taking advantage of it. I’ll have to find some time later today or this week to help him shop for clothes that’ll make him look better.*  
+*It’s rare of him to be ready for the day this early, and before me, too. That fresh look of his shows potential, but he still isn’t taking advantage of it. I’ll have to find some time later to help him get some new clothes.*  
 
 “Good morning, dear brother,” she greeted with a practiced smile. “Glad to see you’re looking much better than yesterday.”   
 
