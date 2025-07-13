@@ -204,7 +204,7 @@ Gehenna woke up with a fresh start and stretched her arms.
 
 She got out of her soft bed and parted the black curtains on all the windows to her right.  
 
-A smile formed on her raw lips as raw sunlight flashed before her. The way it shone brightly today at this time of the year was enough to know she had woken up on time. A little later than usual, but still on time.  
+A smile formed on her lips as raw sunlight flashed before her. The way it shone brightly today at this time of the year was enough to know she had woken up on time. A little later than usual, but still on time.  
 
 “Lady Gehenna?” a maid said while knocking on the door.  
 
