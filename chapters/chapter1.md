@@ -182,7 +182,7 @@ As the castle became closer, his chest tightened, and he uttered a name.
 <br>
 <br>
 
-He arrived at the castle entrance.   
+Gerwyn arrived at the castle entrance.   
 
 The two guards at the front let him inside without a word.   
 
