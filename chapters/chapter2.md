@@ -502,7 +502,7 @@ After a brief pause, he pulled it out.
 
 This book wasn’t here during his last visit.  
 
-“*Knuckle Duster \- A Guide to Boxing.*” he whispered the title.   
+“*Knuckle Duster \- A Raw Guide to Boxing.*” he whispered the title.   
 
 *Hand-to-hand combat here isn’t taught beyond basic self defense, so it’s unusual for a guide to an obscure martial art to be in these archives.*   
 
