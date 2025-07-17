@@ -312,7 +312,7 @@ Mercer exhaled, then continued. “And I do apologize, Mother. It’s just…*di
 
 Gerwyn did not wince.   
 
-He knew who Mercer was talking about.  
+He knew who Mercer was talking about. 
 
 Everyone else did, but such things were left unsaid.  
 
@@ -326,7 +326,7 @@ Mercer turned to him with a fierce scowl while breaking his grasp away. “You a
 
 It was Gehenna.   
 
-Or as he preferred to call her in his head, the Viper.   
+Or as Gerwyn preferred to call her in his head, the Viper.   
 
 “Oh, look who finally showed up.” Mercer snapped as she walked in.  
 
