@@ -482,7 +482,7 @@ Silence. It briefly locked the room as Gehenna and Lily stared daggers at each o
 
 Victor’s large frame and the distance between them obfuscated his vision of her.   
 
-He could not tell if *it* was in her eyes. No part of his soul had the curiosity to find out.  
+He could not tell if *It* was in her eyes. No part of his soul had the curiosity to find out.  
 
 “Hey, Nadis\! What’s with you taking his side so suddenly?” Lily exclaimed again. “You better not be getting a big head just because you have some ‘adventurer’s experience’\!”  
 
