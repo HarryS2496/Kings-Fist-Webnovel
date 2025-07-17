@@ -348,7 +348,7 @@ Gerwyn sighed. Even in a family dinner where every child except him and Pendra h
 
 “Gods, what a farce this is.” Victor cut in again, exasperated. “Father arranged this as a meeting of Ashwright’s royals; all of you must play your parts instead of bickering like this.”  
 
-*Pendra’s right about him. Ashwright or not, those words aren’t fitting for a dinner table.*   
+*Another lecture begins.*   
 
 “Mercer, I know not where or why this anger of yours has been around since youth, but it *must cease*.   
 
