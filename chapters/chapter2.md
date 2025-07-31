@@ -379,7 +379,7 @@ Victor’s fist trembled in a mixture of suppressed rage and fear.
 
 “The ‘joke’ he speaks of is your obstinance.” she snapped, staring him down with the same eyes she gave to Georg.  
 
-“You dismissed it earlier, but Pendra was right. Your obsession with duty grows worse by the month, and it puts off everyone else here. Father did not set this reunion up as a meeting between the commanders of Ashwright’s army. He set it up for his family. You were not asked to do your duty, you were asked to *be a brother*. Yet here you are, conducting this…*farce* of an interrogation about a sex scandal with our maids. And for what? So you can…police our staff into chastity? So you can feel more like the sole authority of this castle? You’re eroding your mind to uphold Ashwright’s creed, and I tire of it. We all tire of it.”  
+“You dismissed it earlier, but Pendra was right. Your obsession with duty grows worse by the month, and it puts off everyone else here. You were not asked to be a commander at this table, you were asked to *be a brother*. Yet here you are, conducting this…*farce* of an interrogation about a sex scandal with our maids. And for what? So you can…police our staff into chastity? So you can feel more like the sole authority of this castle? You’re eroding your mind to uphold Ashwright’s creed, and I tire of it. We all tire of it.”  
 
 He flinched, taken aback by his older sister. “Nadis, I…”   
 
