@@ -194,7 +194,7 @@ Two advisors he recognized were deep in conversation.
 
 “...Do you know what Georg truly came here for? It’s suspicious that he’d disappear for five years and then come back so cheerful like that.” Zinzolin whispered, scratching his bald head.  
 
-“It’s likely another act of his. Even I can’t tell where his thoughts start and end half the time.” she responded while adjusting her blackened hair into a ponytail. As her slender fingers moved, the magic in the silver rings each of them wore sung a dull tune he could just barely perceive.   
+“It’s likely another act of his. Even I can’t tell where his thoughts start and end half the time.” Jadeqen responded while adjusting her blackened hair into a ponytail. As her slender fingers moved, the magic in the silver rings each of them wore sung a dull tune he could just barely perceive.   
 
 “Still, we’ll have to keep an eye on him. Some of the rumors aren’t without credibility, after all…”  
 
