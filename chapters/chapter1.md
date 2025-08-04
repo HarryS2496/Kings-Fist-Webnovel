@@ -424,7 +424,8 @@ Four maids came with the main dishes for the night: a magnificent ham glistening
 
 The smell of the fish immediately brought a glint of excitement to Lily.  
 
-“We must stand united, eh? Well now, that’s rather unlike you, Father.” Georg said lightly while taking a piece out of his pie slice. “Do you hear that, Victor? Your sermons are getting so stale, even Father is desperate for a more interesting conversation. And speaking of interesting things to talk about…”  
+“We must stand united, eh? Well now, that’s rather unlike you, Father.” Georg said lightly while taking a piece out of his pie slice. “Do you hear that, Victor? Your sermons are getting so stale, even Father is desperate for a more interesting conversation. Speaking of which
+...”  
 
 He looked at the table’s farthest seat away from him.  
 
