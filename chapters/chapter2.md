@@ -512,7 +512,7 @@ His eyes scanned the shelf to catch any other unusual texts like it.
 
 He looked back at the book, now fixated on the author’s name.  
 
-“Written by…*Bobby*…*West*?” he whispered.   
+“Written by…*Bobby*…*West*?”   
 
 The cadence of it was alien to him.  
 
