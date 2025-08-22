@@ -629,9 +629,7 @@ This snap is the key to sharpening your fist and yourself.
 
 He threw his arm out as quickly as he could. It gave back a small jolt.  
 
-*Sure enough, it does give a snap reaction.*   
-
-*Ok, time to put this into action. First comes the stance…*  
+*Sure enough, it does give a snap reaction. Ok, time to put this into action. First comes the stance…*  
 
 He went through one step of the process at a time.  
 
