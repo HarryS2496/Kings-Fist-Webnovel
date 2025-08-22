@@ -77,14 +77,28 @@ li {
   font-style: italic;
 }
 
-#back-to-chapter-menu {
-  color:#cbb8fc;
-}
-#back-to-chapter-menu:hover {
-  color:#fcfaff;
-  text-decoration: none;
+#chapter-nav {
+  display: flex;
+  justify-content: space-between;
+  align-items: center;
 }
 
+#chapter-nav a {
+  flex: 1;
+  text-align: center;
+  color:#cbb8fc;
+}
+#chapter-nav a:hover {
+  color:#fcfaff;
+}
+
+#prev-chapter {
+  text-align: left;
+}
+
+#next-chapter {
+  text-align: right;
+}
 
 @media (max-width: 600px) {
   main {

@@ -17,6 +17,29 @@ window.addEventListener('DOMContentLoaded', () => {
       chapterTitle.textContent = `Chapter ${chapterNum}: ${name}`;
       document.title = `Chapter ${chapterNum}: ${name}`;
 
+      const prevChapter = document.getElementById("prev-chapter");
+      const nextChapter = document.getElementById("next-chapter");
+      const chapterNumbers = Object.keys(chapterNames).map(Number).sort((a, b) => a - b);
+      const currentIndex = chapterNumbers.indexOf(Number(chapterNum));
+      
+      if (currentIndex > 0) {
+        const prevNum = chapterNumbers[currentIndex - 1];
+        prevChapter.href = `chapter.html?num=${prevNum}`;
+        prevChapter.textContent = `← Chapter ${prevNum}`;
+      }
+      else {
+        prevChapter.style.visibility = "hidden";
+      }
+      
+      if (currentIndex < chapterNumbers.length - 1) {
+        const nextNum = chapterNumbers[currentIndex + 1];
+        nextChapter.href = `chapter.html?num=${nextNum}`;
+        nextChapter.textContent = `Chapter ${nextNum} →`;
+      }
+      else {
+        nextChapter.style.visibility = "hidden";
+      }
+
       return fetch(`chapters/chapter${chapterNum}.md`);
     })
     .then(response => {
