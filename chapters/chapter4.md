@@ -7,7 +7,7 @@ Gerwyn’s entire body was petrified by the tall figure before him.
 
 Even in broad daylight, Georg’s shadow exposed no humanity.  
 
-The polite smile held no warmth; it only masqueraded it.  
+The polite smile held no warmth. Another masquerade.  
 
 To face him here was an unexpected trial confirming the worst of his fears.  
 
