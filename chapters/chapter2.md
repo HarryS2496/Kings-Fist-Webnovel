@@ -48,7 +48,7 @@ The dinner table was now far away.
 
 He pushed the handle and opened the door.   
 
-A warm glow spilled into the darkness as he pushed it.   
+A warm glow spilled into the darkness.   
 
 The door made no sound as it revealed his sanctuary in this dark, frost ridden castle.   
 
