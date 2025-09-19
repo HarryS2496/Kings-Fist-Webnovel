@@ -253,7 +253,7 @@ Georg knocked back his glass of wine in one gulp, exhaling a refreshed breath.
 
 Though his cheeks gained a rose tint, he did not stagger.   
 
-“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? That little brother turned his magic into something real special. I’ve read about the theory – using both wind and earth to predict movement – but never thought one of our own would try and master it.”  
+“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? That little brother turned his magic into something real special. I’ve read about the theory: using both wind and earth to predict movement, but never thought one of our own would try and master it.”  
 
 Victor nodded. “It is unorthodox for Ashwright’s warriors, but in this day and age, we need versatility in might. Proper discipline will set those three on the right path. Gehenna lags behind; I will not permit her to drift further.”  
 
@@ -266,7 +266,6 @@ Victor nodded. “It is unorthodox for Ashwright’s warriors, but in this day a
 “Hey hey, I’m not mistaking anything here. It just so happens that there’s an open book in front of me, and the pages are written in fine ink.”  
 
 The two brothers gazed at each other.   
-
 The unsheathed stare that pierced versus the sheathed stare that shattered.  
 
 Another bout of silence.   
@@ -293,7 +292,7 @@ A maid who overheard the accusation dropped a tray of plates out of shock. Thank
 
 As she hurriedly put them back together, she met Nadis’s apologetic gaze.  
 
-They shared a similar sentiment of despair as the maid got back to work.  
+They shared a similar sentiment of despair as the maid got back to work. 
 
 Every second of silence felt more agonizing than the last.  
 
@@ -349,9 +348,9 @@ Far worse had shattered her before.
 
 *You’re the one who brought it up, chaste commander.*  
 
-“You’re the one who brought it up, chaste little brother.” Georg retorted as he shut his eyes again. “But fine – what *was* your point, then?”  
+“You’re the one who brought it up, chaste little brother.” Georg retorted as he shut his eyes again. “But fine. What *was* your point, then?”  
 
-“My point, Georg Ashwright, is that if you’re behind these rumors, it must *cease*. Father needs all of his children – all of us – ready for harder times to come. And to do that, the two of you must play your own parts as shining examples of–”  
+“My point, Georg Ashwright, is that if you’re behind these rumors, it must *cease*. Father needs all of us ready for harder times to come. And to do that, the two of you must play your own parts as shining examples of–”  
 
 “Ugh, you *never change*, do you?”   
 
@@ -361,11 +360,11 @@ Nadis got up from her seat, slowly heading for the door.
 
 *I already know what’s going to be said next; no need to be around for it.*  
 
-“This is…what, the fourth time you’ve talked about us playing parts at this table? And mentioning our father’s legacy?” Georg was no longer trying to hide the indignation in his voice.   
+“This is…what, the fourth time you’ve talked about us playing parts at this table? And mentioning our father’s legacy?” Georg was no longer trying to hide the indignation in his voice. 
 
 *These two men can waste time in circles by themselves.*  
 
-“Your little brothers and sisters tell you time and again to save these talks at the war council, yet you refuse to listen. Victor, you–”   
+“Your brothers and sisters tell you time and again to save these talks at the war council, yet you refuse to listen. Victor, you–”   
 
 “What I speak is of *great importance*\! I’ll repeat it as much as I must\!” Victor sharply interrupted. “Our brethren were born carrying the weight of the Ashwright name. They must be taught how to live up to its burdens, especially when us three are united to guide those five at this reunion–”  
 
@@ -373,7 +372,7 @@ Nadis got up from her seat, slowly heading for the door.
 
 Victor’s fist trembled in a mixture of suppressed rage and fear.  
 
-“Are you calling this kingdom – our legacy – a *joke*?” his sharp voice growled.  
+“Are you degrading our kingdom's legacy to that of a *joke*?” his sharp voice growled.  
 
 *Actually, as payback for dragging me into this, I’ll say one last thing.*  
 
@@ -407,7 +406,7 @@ Father claims he alone is able to keep Yomi at bay, but he grows older while the
 
 *Yes. A possibility. One possibility.*  
 
-“Being on guard against one of these kingdoms is already much to ask for, given our current might. But if any of them unite against us, our demise is inevitable. And I’m supposed to relax, knowing such threats loom over us? Should I just smile and remain at ease? Should I just turn a blind eye to the weeds inside this castle? Should I just ‘find a lady’ and laugh at suppertime while our walls rot and all of Axiom prepares to swallow us?”   
+“Being on guard against one of these kingdoms is already much to ask for, given our current might. But if any of them unite against us, our demise is inevitable. And I’m supposed to relax, knowing such threats loom over us? Should I just smile and remain at ease? Should I just turn a blind eye to the weeds inside this castle? Should I just ‘find a lady’ and laugh at suppertime while our walls rot and all of Axiom prepares to swallow us?” 
 
 *Yes. Our walls still remain firm.*   
 
@@ -418,7 +417,6 @@ His eyes began to twitch.
 Neither should you, Nadis.  
 
 I *do this* because someone must teach our brethren how to stay alive.  
-
 I *do this* because someone has to bear the armor for our people.  
 
 I *do this*…because someone has to lead after Father is gone.  
@@ -429,7 +427,7 @@ I *do this*…because to the world’s chaos, this is my only answer.”
 
 Silence smothered the room.  
 
-Victor slowly relaxed his guard, falsely interpreting it as agreement.   
+Victor slowly relaxed his guard, falsely interpreting it as agreement. 
 
 Nadis closed the distance with quiet, deliberate steps.   
 
