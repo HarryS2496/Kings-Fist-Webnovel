@@ -265,7 +265,7 @@ Even after telling himself not to feel anything, *It* always came back to him.
 
 *I could just lie here for the rest of my life.*   
 
-*It* would continue to follow him no matter where he went in this kingdom*.*  
+*It* would continue to follow him no matter where he went in this kingdom.  
 
 *No one would even bother going up here to find the body.*  
 
