@@ -417,6 +417,7 @@ His eyes began to twitch.
 Neither should you, Nadis.  
 
 I *do this* because someone must teach our brethren how to stay alive.  
+
 I *do this* because someone has to bear the armor for our people.  
 
 I *do this*…because someone has to lead after Father is gone.  
