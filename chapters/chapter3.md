@@ -520,7 +520,7 @@ He waved his fingers with both thumbs in the ears and goofily stuck his tongue o
 
 Gehenna patted Lily’s head to calm her down. “It’s too early to start an argument, you two. That being said…” She redirected her attention back to the duel. Almost ten minutes had passed, and neither side had cornered the other.   
 
-“You’re not wrong this day being another lackluster one, Pendra. I predict they’ll be at that stalemate for ten more minutes.”  
+“You’re not wrong about this day being another lackluster one, Pendra. I predict they’ll be at that stalemate for ten more minutes.”  
 
 “You make it sound like a generous judgement there,” he remarked.  
 
