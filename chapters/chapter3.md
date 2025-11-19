@@ -538,7 +538,7 @@ Gehenna's knife flashed as she parried the ball of Mercer’s weapon in time.
 
 “...tion.”  
 
-Mid-duel, he let the chain fly wild behind him – faking a slip.   
+Mid-duel, he let the chain fly wild behind him, faking a slip.   
 
 The raw force behind this “slip” was enough to know it was aimed at her from the start.  
 
@@ -636,7 +636,7 @@ Her weary eyes told Gehenna the rest of the tale.
 
 “Well, that makes sense.” Lily spoke up. “But what about…*him*? You definitely saw where *he* went off to, right, big sis?”  
 
-“...If you speak of Gerwyn, then yes, I did see him.” Gehenna answered. “He was ready early, too. Though…when I tried to invite him along for breakfast, he gave a rather…*determined* look I’ve never seen before. Then he said ‘I’m busy’ and walked off without a word.”  
+“...If you speak of Gerwyn, then yes, I did see him.” Gehenna answered. “He was ready early, too. Though when I tried to invite him along for breakfast, he gave a…*determined* look I’ve never seen before, then said ‘I’m busy’ and walked off without a word.”  
 
 Mercer scoffed dryly. “And I’m secretly a sage-lord who turned *Kaos* into a paradise.”   
 
