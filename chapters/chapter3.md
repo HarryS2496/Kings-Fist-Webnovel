@@ -22,7 +22,7 @@ He flinched, then sighed. “What is it, Shen?”
 
 “Come on\! You could at least *pretend* you're happy to see me\!” she shouted with her hands on her hips.   
 
-“I was happy – until some loud kid started shouting while banging shovels around.” he retorted in a deadpan tone.  
+“I was happy until some loud kid started shouting and banging shovels around.” he retorted in a deadpan tone.  
 
 “You’re also a kid, you know\! We’re the same age\!”  
 
