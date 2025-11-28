@@ -11,7 +11,7 @@ body {
 header, footer {
   background: #000000;
   color: white;
-  padding: 2em;
+  padding: 1em;
   text-align: center;
 }
 
@@ -112,11 +112,6 @@ li {
     padding: 0.5rem;
     border-radius: 0;
     box-shadow: none;
-  }
-
-  footer {
-    font-size: 1.125em;
-    padding: 1.25em 0.75em;
   }
 
   #chapter-nav {
