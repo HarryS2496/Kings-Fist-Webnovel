@@ -11,7 +11,7 @@ body {
 header, footer {
   background: #000000;
   color: white;
-  padding: 1rem;
+  padding: 2em;
   text-align: center;
 }
 
@@ -81,6 +81,7 @@ li {
   display: flex;
   justify-content: space-between;
   align-items: center;
+  font-size: 1.75em;
 }
 
 #chapter-nav a {
@@ -125,7 +126,6 @@ li {
   }
 
   #chapter-nav a {
-    font-size: 1em;
     line-height: 1.5;
     padding: 0.5em 0.25em;
     display: inline-block;
