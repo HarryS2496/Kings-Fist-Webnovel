@@ -619,11 +619,11 @@ The kindled flame within his soul would not peter out as soon as it was born.
 
 And in another flash of flames and lightning, they had started another round.  
 
-“Actually, what am I saying? ‘Thousands’ is too generous, I imagine she’s thrusted that spear more than a million times.” Georg corrected himself.  
+“Actually, what am I saying? ‘Thousands’ is too generous, I imagine she’s thrusted that spear more than a million times.” he corrected himself.  
 
 “Okay…but what does that have to do with the power difference between you and her?” questioned Gehenna once again. “You’ve also likely practiced the disciplines that got you this far thousands of times.”  
 
-“And that’s the thing: the amount of practice I’ve put into each is in the mere thousands.” said Georg as he raised a finger. I’ve gotten by fine with knowledge and practice in many fields, but no matter how I combine them together, it will still pale in comparison to the power of one who has done one task millions of times.”
+“And that’s the thing: the amount of practice I’ve put into each is in the mere thousands. I’ve gotten by fine with knowledge and practice in many fields, but no matter how I combine them together, it will still pale in comparison to the power of one who has done one task millions of times.”
 
 <br>
 <br>
