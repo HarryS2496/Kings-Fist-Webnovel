@@ -481,7 +481,7 @@ The silent air no longer surrendered to such enervated jabs.
 
 “Not to mention that you’re the only besides Gerwyn to be adept in magic from all seven elements.” Gehenna added.  
 
-“And unlike the cripple, he’s got an actual pool to make use of the seven elements.” Mercer chimed in. “The main reason he’s holding back against us is because he’s brown nosed our father so hard, he can just take the easy road out of this and look down on us while doing it. There’s some other cheap tricks he’s got up his sleeve for it, too.”  
+“And unlike the cripple, he’s got an actual pool to make use of them.” Mercer chimed in. “The main reason he’s holding back against us is because he’s brown nosed our father so hard, he can just take the easy road out of this and look down on us while doing it. There’s some other cheap tricks he’s got up his sleeve for it, too.”  
 
 “I can confirm without a shadow of a doubt that two of you are on the right track and one of you was born with the name Mercer Ashwright\!” Georg clapped in mock applause.  
 
