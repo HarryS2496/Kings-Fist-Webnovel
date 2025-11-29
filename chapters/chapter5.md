@@ -247,7 +247,7 @@ With little hesitation, the two immediately clashed again.
 
 “Well, if you can ‘infer’ it all so well, let’s hear it. What do you think you missed here, snake?” asked Mercer, irritated by Georg’s sudden arrival.  
 
-“Heh, it’s quite simple, really.” chuckled Georg. “Victor exhausted himself to near death trying to teach all of you, so now Nadis is taking out her frustrations with him on Lily. Ah, and are those chain marks I see on the neck there? 
+“Heh, it’s quite simple, really.” chuckled the eldest brother. “Victor exhausted himself to near death trying to teach all of you, so now Nadis is taking out her frustrations with him on Lily. Ah, and are those chain marks I see on the neck there? 
 The only way that could have happened is if you somehow let Mercer choke you out earlier, little brother.”  
 
 
@@ -255,9 +255,9 @@ The only way that could have happened is if you somehow let Mercer choke you out
 
 “And what do you mean by ‘let’? Our commander here gave it everything he had and still folded before me; you don’t just let someone choke you out of some twisted pity.” said Mercer.  
 
-“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.” remarked Georg, unfazed and smiling in the face of tension.  
+“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.” said Georg, unfazed and smiling in the face of the inferno he chose to ignite.  
 
-“Don’t test me, now.” A quiet inferno seethed in Mercer.  
+“Don’t test me, now.” growled Mercer. The inferno's source seethed and smoldered in his eyes.
 
 “And why not? I’m just curious to see if you can replicate a victory like that without needing to strike the audience as some sort of distraction.”  
 
