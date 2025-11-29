@@ -739,7 +739,7 @@ Gerwyn had taken care of his situation for lunch long ago.
 
 “And much like you, he used to be the one who’d complain about it.” added Nadis.  
 
-“Indeed. Back then, in those days of being a spry young lad, I’d often ask why ‘healthy meals’ such as this had to taste like sewage and pisswater mixed in a bowl. In those days, I just assumed it was yet another means of torture by Father’s high standards.”  
+“Indeed. Back then, in those days of being a spry young lad, I’d often ask why ‘healthy meals’ such as this had to taste like sewage and pisswater mixed in a bowl. For too long, I assumed it was yet another means of torture by Father’s high standards.”  
 
 Pendra looked over to Nadis for confirmation, but she looked off to the side. A subtle, forlorn look had overcome her, but the context of what it could possibly be was far beyond him. He figured as much.  
 
