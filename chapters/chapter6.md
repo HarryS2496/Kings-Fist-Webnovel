@@ -145,7 +145,7 @@ Though he had some awareness of the path to take to his chambers and the world a
 
 Behind the couple in the piece was some sort of small, elevated arena with ropes as barriers. The floor, or what little he could see of the floor, was easy to recognize as carpet, but it seemed to stretch through the entire building floor as if it covered the whole area. A white wall stood off into the distance, with a row of small windows above it.   
 
-*Even when I find a reference that makes sense here, it’s in a way I haven’t seen before. It would be easier to narrow down this book’s origins if I knew a proper frame of reference this building relates to. But even after studying every continent in Axiom from books I have next to no connections between them and…whatever this is. If that’s the case, then…*  
+*Even when I find a reference that makes sense here, it’s in a way I haven’t seen before. It would be easier to narrow down this book’s origins if I knew a proper frame of reference this building relates to, except I don't. If that’s the case, then…*  
 
 A hypothesis began to take shape.  
 
