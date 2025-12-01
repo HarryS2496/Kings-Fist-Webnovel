@@ -446,7 +446,7 @@ An air of surprise and perplexity swept the room, palpable to a point Gerwyn cou
 
 “Yeah, no shit. That’s common knowledge you’ve imprinted unto us, withering *bastard*.”  
 
-*The longest I’ve heard anyone willingly camp there was when Victor’s did it alone for three months. If I recall correctly, even he struggled with survival.*  
+*The longest I’ve heard anyone willingly camp there was when Victor did it alone for three months. If I recall correctly, even he struggled with survival.*  
 
 “Push this any further and see what happens, Mercer.” declared Victor, no longer restraining his contempt. “You’ve already done far enough during practice today; do not try our patience\!”  
 
