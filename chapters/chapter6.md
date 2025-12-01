@@ -106,7 +106,7 @@ As the fresh air and glow of the evening’s advent blasted him, he could not he
 
 *From here, the rest of the way back shouldn’t be a problem.*  
 
-The exhaustion’s weight began to reveal itself on his legs.  
+The weight of exhaustion began to reveal itself on his legs.  
 
 *…I hope.*
 
@@ -137,7 +137,7 @@ Now that he had an idea of the manual’s logos, understanding the source of whe
 
 He scratched his forehead, perplexed by the outer details of a moment between the mysterious couple.   
 
-*White hot flames, maybe? Those are dangerous, given their heat, and no one in Axiom would dare use such sacred pyres for merely lighting a building. So there’s definitely another source at play here. Electricity, perhaps? It’s certainly possible, given the light they produce, but you’d need a complex machine to even contain such a volatile element. And I’ve only seen those kinds of machines in fiction.*  
+*White hot flames, maybe? Those are dangerous, given their heat, and no one in Axiom would dare use such sacred pyres for merely lighting a building. So there’s definitely another source at play here. Electricity, perhaps? It’s certainly possible, given the light they produce, but you’d need a complex machine to even contain such a volatile element. And I’ve only read about those kinds of machines in D-100%.*  
 
 Though he had some awareness of the path to take to his chambers and the world around that path, racking his brain to further understand each conundrum that popped up was the higher priority of the now.  
 
@@ -149,7 +149,7 @@ Behind the couple in the piece was some sort of small, elevated arena with ropes
 
 A hypothesis began to take shape.  
 
-*This book was made in an unknown world outside Axio–*  
+*It's safe to say this book was made in a world outside Axio–*  
 
 **Bump.**  
 
