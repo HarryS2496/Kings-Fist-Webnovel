@@ -8,17 +8,31 @@ body {
   line-height: 1.8;
 }
 
-header, footer {
+header {
   background: #000000;
   color: white;
   padding: 1em;
   text-align: center;
 }
 
+footer {
+  position: fixed;
+  bottom: 0;
+  left: 0;
+  right: 0;
+  background: #000000;
+  color: white;
+  padding: 1em;
+  text-align: center;
+  z-index: 1000;
+  box-shadow: 0 -2px 5px rgba(0,0,0,0.2);
+}
+
 main {
   max-width: 1000px;
   margin: 1.5rem auto;
   padding: 1rem;
+  padding-bottom: 5rem;
   background: white;
   border-radius: 8px;
   box-shadow: 0 2px 5px rgba(0,0,0,0.1);
@@ -110,12 +124,26 @@ li {
     max-width: auto;
     margin: 0.5rem;
     padding: 0.5rem;
+    padding-bottom: 5.5rem;
     border-radius: 0;
     box-shadow: none;
   }
 
+  footer {
+    padding: 0.75em 0.5em;
+  }
+
   #chapter-nav {
-    gap: 0.75em;
+    gap: 0.5em;
     margin: 0;
+    flex-wrap: wrap;
+    font-size: 1.1em;
+  }
+
+  #chapter-nav a {
+    min-height: 44px;
+    display: flex;
+    align-items: center;
+    justify-content: center;
   }
 }
