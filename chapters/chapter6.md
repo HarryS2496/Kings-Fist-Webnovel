@@ -614,13 +614,13 @@ The queen had gotten up from the sofa and slowly walked towards him, each step a
 
 “As exact as what I would decree.” Sherman replied while writing more notes.  
 
-“Good.” She gave the room a quick scan, then turned to Gerwyn and Pendra. “Your resolve to defend your brother deserves credit where it is due. Unfortunately, this is also a decision your father and I will not be changing our minds on, nor will we consider it a death sentence.”   
+“Good.” She gave the room a quick scan, then turned to Gerwyn and Pendra. “The resolve you two have to defend your brother is worthy of admiration. Unfortunately, this is a final decision your father and I will not be changing our minds on.”   
 
 Another expected result.  
 
 “And you’re sure of this?” was all Gerwyn could reply with. It was a miracle he could still find his voice.  
 
-“Yes, we are. Now sit back down, you two.”  
+“Yes, we are. Now sit back down.”  
 
 “But Mother–” Pendra started.  
 
