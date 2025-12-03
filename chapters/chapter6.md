@@ -590,17 +590,17 @@ The Authority knew this long before today, but to restrain the Fury was to commi
 
 “...I-it’s you.” Gerwyn replied with a wavering certainty.  
 
-“Yeah, that’s right; *me*\! I’m the one who’s lived there, while you’ve passed out over far less\! So you’ve got some nerve, thinking you can spit on my strength after getting away with this bullshit\! No way in hell would I agree to this with the intent to die like you would\!”  
+“Yeah, that’s right; *me*\! I’m the one who’s lived there, while you’ve passed out over far less\! So you’ve got some nerve, thinking you can spit on my strength after getting away with this bullshit\! A bitch like you will not deny me a chance to soar higher than ever\!”  
 
 **THUMP.**  
 
 “But…t-that’s not–”   
 
-“‘That’s not’ what? What, are you trying to say it still isn’t possible? You think because you’re too weak to even count as a person, it means you’ve got some perspective on weakness or some other pretentious bullshit? Don’t make me–”   
+“‘That’s not’ what? What, are you trying to say it still isn’t possible? You think because you’re too weak to even count as a person, it means you’ve got some perspective on weakness or some pretentious hogwash? Don’t make me–”   
 
 “Mercer, stop\!\! You’re just digging your own epitaph at this point\!\!” Pendra stood up to cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
 
-“Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be in the same family, but there’s one clear difference between people like you and me. People like you just cower behind the dresses of this forsaken kingdom and its bullshit, telling the world it’s ok to live as a miserable weakling, to never seek–”  
+“Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be in the same family, but there’s one clear difference between people like you and me. People like you just cower behind the dresses of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
 
 With one spell, the tirade had come to a sudden end.   
 
@@ -644,7 +644,7 @@ Blazes radiated, slowly melting the prison and bringing spirit back to his cold 
 
 Though the burning pain carved itself into him, his rage remained undeterred.  
 
-“You’ve got one thing correct. This isn’t a death sentence at all. Really, it’s a festive gift to savor down to the last drop. No matter how long the exile, I’ll spend as much time as I need to make those mountains up north crumble to my feet. And once that’s finished…you and the rest of this kingdom better be ready.”  
+“Thanks for the extension, *Mother*. I'll make sure to savor that festive gift to the last drop. No matter how long this exile lasts, I’ll spend as much time as I need to make those mountains up north crumble to my feet. And once that’s finished…you and the rest of this kingdom better be ready.”  
 
 He shoved Beatrice to the side and made his way to the door.   
 
