@@ -181,7 +181,7 @@ As the two sisters began their duel, the rest of the siblings fell into their ro
 
 “Anywho\!” Pendra clapped his hands together, predicting yet another bitter staredown before it could commence. “Mercer’s language aside, he’s not entirely wrong, but…” He then ruffled his head in a moment of deliberation. “There’s probably a better way to teach her a lesson about biting off more than she can chew, right? Pride of Ashwright or no, there’s no reason an experienced adventurer needs to go all out against a little kid.”  
 
-“To be fair, you’d be wrong on that front anyways.” called a laid back voice from a fair distance off. “Because this is far from the full extent of what Nadis can do.”  
+“To be fair, you’d be wrong on that front anyways.” called a laid back voice not far off from the benches. “Because this is far from the full extent of what Nadis can do.”  
 
 Mercer, Gehenna, and Pendra all looked to their left, surprised by the sudden interjection.  
 
@@ -250,12 +250,11 @@ With little hesitation, the two immediately clashed again.
 “Heh, it’s quite simple, really.” chuckled the eldest brother. “Victor exhausted himself to near death trying to teach all of you, so now Nadis is taking out her frustrations with him on Lily. Ah, and are those chain marks I see on the neck there? 
 The only way that could have happened is if you somehow let Mercer choke you out earlier, little brother.”  
 
-
 “Not helping, Georg.” Victor grumbled as his face was still buried in a towel.  
 
 “And what do you mean by ‘let’? Our commander here gave it everything he had and still folded before me; you don’t just let someone choke you out of some twisted pity.” said Mercer.  
 
-“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.” said Georg, unfazed and smiling in the face of the inferno he chose to ignite.  
+“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.” grinned Georg, unfazed in the face of the inferno he chose to ignite.  
 
 “Don’t test me, now.” growled Mercer. The inferno's source seethed and smoldered in his eyes.
 
@@ -339,7 +338,7 @@ Lily found herself overcome by agape shock once again.
 
 “Don’t you dare call my sword an imitation\! Someday, I’ll surpass Father, both in the legends and truth alike\!\! And the first step to doing that…is by beating you right here\!\!”  
 
-Nadis instantly put her guard up as Lily dashed forward towards her. Though the latter did not regain the offensive like she hoped, she managed to bring the both of them right back into exchanges more intense than the previous rounds.  
+Nadis instantly put her guard up as Lily dashed towards her. Though the latter did not regain the offensive like she hoped, she managed to bring the both of them right back into a duel only those of Ashwright blood could truly know. 
 
 *This is going to take a long while.*
 
