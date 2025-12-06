@@ -96,7 +96,7 @@ He nodded. They were still eating – but as his mother said earlier – the imp
 
 She took out a notepad and flipped through it, as she often did when she tried to recollect. After flipping through half its pages with her swift fingers, she frowned.  
 
-“Unfortunately, no updates on *D-100%* or Michael Crow’s next project. That eccentric has been rather quiet for half a year now. And…”  
+“Unfortunately, no updates on *D-100%* or Michael Qrow’s next project. That eccentric has been rather quiet for half a year now. And…”  
 
 The frown became forlorn.  
 
