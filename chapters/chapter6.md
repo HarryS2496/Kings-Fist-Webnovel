@@ -402,7 +402,7 @@ Victor stood on the right side of the desk with two watchful eyes over the entir
 
 After the room fell silent in anticipation again, Sherman reviewed the paper. The look in his eyes immediately calculated a final judgement.  
 
-“This battle was yet another pointless struggle our kingdom must not know about. A fruitless inflation of ego at the cost of another’s dignity. Understand, Mercer, that this is the last straw to end the last straws. I sincerely thought those years of discipline at Katorus Academy would make you someone far better than this, but it appears that was a lapse in judgement after all.”  
+“This battle was another pointless struggle our kingdom must not know about. A fruitless inflation of ego at the cost of another’s dignity. Understand, Mercer, that this is the last straw to end the last straws. I thought those years of discipline at Katorus Academy would set you on the right path, but it seems that was a lapse in judgement after all.”  
 
 Mercer did not waver under the glare of their father. With crossed arms and a straightened posture, he held no fear in the face of Ashwright’s strongest.  
 
@@ -416,7 +416,7 @@ Mercer did not waver under the glare of their father. With crossed arms and a st
 
 “Nobody’s talking to you, stonehead. Shut up.” Mercer replied, still unfazed.  
 
-Sherman cleared his throat to silence the room. “This time, your punishment will not be so merciful. Five months alone in the wilderness of the *Ashen Highlands* will keep that wrathful streak of yours in check.”  
+Sherman cleared his throat to silence the room. “This time, your punishment will not be so merciful. Five months alone in the *Ashen Highlands* will keep your wrath in check.”  
 
 **THUMP.**  
 
@@ -440,7 +440,7 @@ An air of surprise and perplexity swept the room, palpable to a point Gerwyn cou
 
 *Why’s he accepting that so casually? No, never mind that; what is Father thinking, sending him to the middle of the Highlands for that long?*   
 
-“This is far from your first visit there. I can assume you understand the near impossibility of leaving without heading further north or back to this kingdom.”  
+“This is not your first visit there, so you know the impossibility of leaving. Not without heading further north or back to this kingdom.”  
 
 *Soldiers looking to rise in rank stay there for a month at most, even in groups.*  
 
@@ -750,7 +750,7 @@ But the calm authority of a monarch did not accompany her voice this time.
 
 “Pendra is *correct* on this matter; you go too far. I brought you to this office as a chance to help us pass down judgement towards the guilty, not towards the innocent.”  
 
-“And even if the possibility of what Gerwyn did could have been avoided, that does not excuse the right for you to berate him for it.” Sherman added while scribbling down more notes.  
+“And even if what Gerwyn did was avoidable, such is no excuse for you to berate him so.” Sherman added while scribbling down more notes.  
 
 Victor turned to him.   
 
@@ -760,13 +760,13 @@ This statement convinced the king to set his pen down and slowly fold his hands.
 
 Though he appeared composed, Gerwyn felt a storm roar while catching a glimpse of his eyes toward Victor.   
 
-“It appears you did not understand what we speak of here. That diatribe you referred to as ‘voicing concerns’ is the *impertinence* in question. It would have cost nothing and helped greatly to have never uttered those words.”  
+“You fail to understand the subject here. That diatribe you referred to as ‘voicing concerns’ is the *impertinence* in question. It would have cost nothing and helped greatly to have never uttered those words.”  
 
 Victor had weathered many storms in his lifetime.  
 
 “Even so, it must be done, Father. As your *chosen successor*, I–”  
 
-“No, it must not. And as my *chosen successor*, you still have much to learn about what it means to pass judgement.”  
+“No, it must not. And as my *chosen successor*, you have much to learn about passing judgement.”  
 
 Yet the king’s storm could still coerce with ease.  
 
@@ -776,7 +776,7 @@ Both of them did not hesitate to get up and walk away.
 
 As the thick, metal doors closed behind them, they could faintly overhear another discussion taking place inside.  
 
-“Victor Ashwright. Perhaps it is time we had a proper chat about where your priorities as a commander must lie. First…” started Sherman.  
+“Victor Ashwright. We must now talk about where your priorities as a commander must lie. First…” started Sherman.  
 
 It did not take long for the conversation to fade out as they walked away.  
 
