@@ -710,13 +710,13 @@ Pendra’s interrupted moment to relax had soured his demeanor into irritation. 
 
 Victor ignored him and turned back to Gerwyn.  
 
-“As for *you*, surely even you must know better than this as of now.”   
+“I speak of how *you* must surely know better than this now.”   
 
 *…Nothing was ever going to come out of fighting back?*  
 
 The question he had seldom asked took priority over Victor's voice that he had heard time and again.  
 
-“Do you still understand the dire risks that come with what you can do in your condition?”  
+“Do you still understand the dire risks of your condition?”  
 
 *That’s not true. I drew the first blood against him.*  
 
