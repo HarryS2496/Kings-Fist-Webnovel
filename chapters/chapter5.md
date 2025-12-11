@@ -243,7 +243,7 @@ With little hesitation, the two immediately clashed again.
 
 “Have you been watching the spars from afar this whole time?” Gehenna asked.   
 
-“Oh, no, I just got here after a rather busy morning,” he answered. “It’s just rather easy to infer what’s gone down since I left. I’ve fought alongside Nadis, after all.”  
+“Oh, no, I just got here after a rather busy morning,” he answered. “It’s just rather easy to infer what’s gone down since I left.”  
 
 “Well, if you can ‘infer’ it all so well, let’s hear it. What do you think you missed here, snake?” asked Mercer, irritated by Georg’s sudden arrival.  
 
