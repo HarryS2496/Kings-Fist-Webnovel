@@ -786,7 +786,7 @@ Gerwyn slowly planted his back against a wall.
 
 Though his heart had calmed down, his mind was on its last legs in an attempt to remain stable.  
 
-“Honestly, it’s a good thing you didn’t come to practice today; things got…weird.” Pendra shrugged. “I dunno if it’s because Vic and Mercer are so used to the snowfall around here that actual sunlight pisses them off for some reason, but it wouldn’t surprise me if they didn’t. Though seriously, how does sunlight piss someone off so much that they’d fake a slipup just to get a chokehold that violent?”   
+“Honestly, it’s a good thing you didn’t come to practice; things got…weird.” Pendra shrugged. “I dunno if it’s because Vic and Mercer are so used to the snowfall around here that actual sunlight pisses them off for some reason, but it wouldn’t surprise me if they didn’t. Though seriously, how does sunlight piss someone off so much that they’d fake a slipup just to get a chokehold that violent?”   
 
 The context of this ‘slipup’ was meaningless compared to the aches that assaulted his worn-out arms.   
 
@@ -794,7 +794,7 @@ The context of this ‘slipup’ was meaningless compared to the aches that assa
 
 It was unclear if Pendra was filling in the silence or striking a conversation. Gerwyn longed for the strength to humor him, for he lacked it.  
 
-“Say, this is kinda unrelated, but do you happen to know if something happened between Nadis and Vic, and what that might be? Cause that’s another reason *he’s* been so uppity today; they were holding back some shit until after dinner yesterday. I tried asking Georg about it, but he ended up doing his thing where he’s descriptive on some things but vague on what’s…”  
+“Say, this is kinda unrelated, but do you happen to know if something happened between Nadis and Vic, and what that might be? Cause that’s another reason *he’s* been so uppity; they were holding back some shit until after dinner yesterday. I tried asking Georg about it, but he ended up doing his thing where he’s descriptive on some things but vague on what’s…”  
 
 Pendra trailed off as he just noticed Gerwyn’s current state.  
 
