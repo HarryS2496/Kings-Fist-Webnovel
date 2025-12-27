@@ -600,7 +600,7 @@ The Authority knew this long before today, but to restrain the Fury was to commi
 
 “Mercer, stop\!\! You’re just digging your own epitaph at this point\!\!” Pendra stood up to cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
 
-“Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be in the same family, but there’s one clear difference between people like you and me. People like you just cower behind the dresses of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
+“Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be of the same blood, but there’s a difference between us. Dregs like you cower behind the dresses of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
 
 With one spell, the tirade had come to a sudden end.   
 
