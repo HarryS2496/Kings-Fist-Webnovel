@@ -60,7 +60,7 @@ An unmoving stalemate was the only acceptable outcome for both sides.
 
 The memory of two ascensions and one descension helped him avoid an instant demise.  
 
-*The longer you remain still, the further the sun will slip away. Its light is needed here.*  
+*The longer you remain still, the further the sun will slip away.*  
 
 The memory of many nights alone in the Ashen Archives refined his senses in dim light.  
 
@@ -133,7 +133,7 @@ He squinted at the piece that captured the author’s being once again.
 
 Now that he had an idea of the manual’s logos, understanding the source of where it came from was a secondary priority.  
 
-*If this were a painting, it would be easy to spot even a slight smudge from one replicating candlelight against clothing and skin. But I already know there’s no smudges like that here. The foreword mentioned nothing on magic theory, so pinning this on even a spell I don’t know is out of the question. On top of that, this piece doesn’t have the yellowish glow of candles. No, it’s…pure white?*  
+*If this were a painting, it would be easy to spot even a slight smudge from one replicating candlelight against clothing and skin. But I already know there’s no smudges. The foreword mentioned nothing on magic theory, so pinning this on a spell I don’t know is out of the question. On top of that, this piece doesn’t have the yellowish glow of candles. No, it’s…pure white?*  
 
 He scratched his forehead, perplexed by the outer details of a moment between the mysterious couple.   
 
@@ -145,11 +145,11 @@ Though he had some awareness of the path to take to his chambers and the world a
 
 Behind the couple in the piece was some sort of small, elevated arena with ropes as barriers. The floor, or what little he could see of the floor, was easy to recognize as carpet, but it seemed to stretch through the entire building floor as if it covered the whole area. A white wall stood off into the distance, with a row of small windows above it.   
 
-*Even when I find a reference that makes sense here, it’s in a way I haven’t seen before. It would be easier to narrow down this book’s origins if I knew a proper frame of reference this building relates to, except I don't. If that’s the case, then…*  
+*It would be easier to narrow down this book’s origins if I knew a proper frame of reference this building relates to, except I don't. Perhaps…*  
 
 A hypothesis began to take shape.  
 
-*It's safe to say this book was made in a world outside Axio–*  
+*This book was made in a world outside Axio–*  
 
 **Bump.**  
 
