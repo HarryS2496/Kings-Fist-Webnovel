@@ -651,7 +651,7 @@ Two maids were whispering to each other.
 
 *Wait…Gerwyn? What could he have done to get their attention?*  
 
-“There’s no way, though, right? You’re seen how that prince is skin and bones. Maybe you just need more sleep, Jamie. Your eyes seem exhausted.” the shorter maid replied in a less hushed voice as she wiped her glasses with a cloth.  
+“There’s no way, though, right? You’ve seen how that prince is skin and bones. Maybe you just need more sleep, Jamie. Your eyes seem exhausted.” the shorter maid replied in a less hushed voice as she wiped her glasses with a cloth.  
 
 “Keep your voice down, Frue\!” Jamie’s voice, though fearful, remained low. “I’ve been getting better sleep these days; I can tell what the difference is between a trick of the eyes and a real object.”  
 
