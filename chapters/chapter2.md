@@ -582,8 +582,6 @@ This door too, was an old friend of his. Though he had seen it many times, it ne
 
 *I know there’s no spell behind it. Master Cen said as much.*   
 
-*It’s a cold door in a warm world. That’s why it always throws me off.*  
-
 “You’re lucky I still don’t have the right to see what’s behind you,” he muttered to the door. “It'd be lovely to know if you have something similar to what I’ve got here. Maybe this is exactly what your forbidden tomes look like.”  
 
 The door did not respond.   
