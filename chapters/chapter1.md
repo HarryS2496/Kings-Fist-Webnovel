@@ -165,7 +165,7 @@ A girl with pointed ears, wearing a wolfish grin.
 
 A boy seen in the mirror for a time, looking at a book almost his size.  
 
-He blinked. His vision became more clear as yet another frigid breeze embraced him.  
+The winds embraced him as he blinked, clearing his vision.  
 
 The two children were gone, and the lot was empty.   
 
