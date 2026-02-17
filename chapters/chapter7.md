@@ -226,7 +226,7 @@ One Sage of Dark, an elderly man that Shenael struggled to remember the name of,
 
 “And yet Zantche still struggles to decide one over the other.” Rueltabre sighed as he softly tapped a finger on the table. “Pity that such a bountiful province carries a legacy of being so wishy-washy.”  
 
-“Such is the curse of a prosperous demesne surrounded by behemoths.” added Criteas, politely regaining control of the table. “Meanwhile, we of Xaede hold too many cards to remain ignored, even as this forest stands by the wayside. It is only a matter of time before both Ashwright and Xaede turn to us for a similar alliance.”   
+“Such is the curse of a prosperous demesne surrounded by behemoths.” added Criteas, politely regaining control of the table. “Meanwhile, we of Xaede hold too many cards to remain ignored, even as this forest stands by the wayside. It is only a matter of time before both Ashwright and Lambda turn to us for a similar alliance.”   
 
 “Yes, I can already hear King Sherman attempting to remind us of the times we were once allies. That, or he’ll pester us with the practical military costs of both sides.” suspired Mennae.  
 
