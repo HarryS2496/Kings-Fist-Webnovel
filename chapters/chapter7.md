@@ -76,7 +76,7 @@ Before Shenael could fire back, Gerwyn quickly put a finger to his clenched teet
 
 “You kids have much to learn if you think the both of you are enough to debunk something ridiculous like–”  
 
-“Tarcus, let’s just let them go for now.” sighed the guard on the right.   
+“Tarcus, let them go.” said the guard on the right.   
 
 Though Shenael was at first unsure because of her equally broad build, the rough tones of her voice were enough to tell she was a woman of higher experience at her post.  
 
@@ -198,7 +198,7 @@ Shenael sat to the right side of Crideas, while her grandfather, Rueltabre, sat 
 
 “There is no N in Xaede, girl.” Sage of Dark Solinde Kurnael curtly interrupted.  
 
-“For Zaiklonael’s sake, Master Solinde, it’s called a joke. You should use those more for the sake of your digestion.” sighed Sage of Light Mennae Niannes. She too sipped her tea, but favored it less.   
+“For Zaiklonael’s sake, Master Solinde, it’s called a joke. You should use those more for the sake of your digestion.” told Sage of Light Mennae Niannes. She too sipped her tea, but favored it less.   
 
 “And these ‘jokes’ have no place for sharpening the blades of our table.” Solinde snapped as he glared at the Dias twins.   
 
