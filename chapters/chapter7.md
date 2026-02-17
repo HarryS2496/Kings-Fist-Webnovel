@@ -135,7 +135,7 @@ Her mind blazed awake, scattering the enervation.
 
 “Is everything all right in there?” Kathenael said as she opened the door.  
 
-“Yeah, no problems here, Mother, I just woke up\! Am I short on time to arrive? Can I still make it there without trouble?” she asked while quickly putting on a coat and getting her bearings together.  
+“Yeah, no problems here, Mom, I just woke up\! Am I short on time to arrive? Can I still make it there without trouble?” she asked while quickly putting on a coat and getting her bearings together.  
 
 “No need to fret, my dear. Your father and grandfather left not too long ago; the meeting starts in about an hour.”  
 
@@ -385,7 +385,7 @@ She quickened her walking pace as the Nexus’s southern exit became clear to he
 
 In her time as a mere shadow to the Sages, she had practiced this subtle escape as a plan to not bump into any of them by pure coincidence. To do so would mean time wasted on post-meeting chatter she currently had no energy for.   
 
-*Even if I knew Jerry was still alive, what could I do about it? It’s not like I could just leave this place and travel all the way to Ashwright just to ‘rescue’ him like a knight does for a princess in those obligatory fables. I’d have way more people to answer to than Mom and Dad for that.*  
+*Besides, what can I do about it now? It’s not like I could just leave this place and travel all the way to Ashwright just to ‘rescue’ him like a knight does for a princess in those obligatory fables. I’d have way more people to answer to than Mom and Dad for that.*  
 
 Her destination for today was a trip to Talon VI.  
 
@@ -451,9 +451,9 @@ Shenael gave the coins to Ramanari. He nodded upon feeling their weight in his h
 
 “And there are no trees to stop the sun’s scorching.” Ramanari added quietly.   
 
-“No kidding, brother\! There’s palaces out there shorter than these trees\!”  
+“No kidding, brother\! Never seen any building out there run this tall!\!”  
 
-“Good thing they’re not as wide as the palaces we have.”   
+“Good thing they’re not as wide as the palaces back home.”   
 
 “Eh, palace *singular* in Yajurv. Our land’s not as lucky as the ones further southeast.” Ardhari shrugged. “But that’s not as important as the other question; Rama, what *is* the difference between Sri and Krish?”  
 
