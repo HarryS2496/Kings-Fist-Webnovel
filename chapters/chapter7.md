@@ -453,9 +453,9 @@ Shenael gave the coins to Ramanari. He nodded upon feeling their weight in his h
 
 “No kidding, brother\! There’s palaces out there shorter than these trees\!”  
 
-“Good thing they’re not as wide as the palaces there.”   
+“Good thing they’re not as wide as the palaces we have.”   
 
-“Palace *singular* in Yajurv. Our land’s not as lucky as the ones further southeast.” Ardhari shrugged. “But that’s not as important as the other question; Rama, what *is* the difference between Sri and Krish?”  
+“Eh, palace *singular* in Yajurv. Our land’s not as lucky as the ones further southeast.” Ardhari shrugged. “But that’s not as important as the other question; Rama, what *is* the difference between Sri and Krish?”  
 
 “...Sri’s the west for the lightskinned and Krish’s the east for the darkskinned. We sell things from both sides, and…well…” Ramanari sighed as he ruffled his head, disappointed in the conveyance he lacked. “Ardh, you can explain this to elves better than I can; stop passing your duties off to me.”  
 
