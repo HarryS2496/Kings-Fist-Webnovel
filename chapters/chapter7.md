@@ -611,7 +611,7 @@ She checked his neck for a pulse. It was still beating, and so was the magic ins
 
 Unlatching the sword from Rekolos’s hilt, its sickening presence crawled in her palm.  
 
-*Urgh…if I didn’t catch ‘em off guard, who knows what these could have done. Better confiscate both of these.*  
+*Urgh…if I didn’t catch ‘em off guard, who knows what these could have done.*  
 
 Though signs of applause were audible, her ears could not tune out the murmurs:
 
