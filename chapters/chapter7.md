@@ -511,7 +511,7 @@ Ardhari had put all the four skewers in a bag and handed it to Shenael. “They 
 
 “Brother.” Ramanari put a hand on his shoulder. “We should listen to her.”  
 
-Whatever conversation those two were having dissipated as she walked up to the stall where the two knights conducted their interrogation against the Zantche merchant. As she got a closer look at all three of them, Shenael noticed a row of tonics, a row of talismans, and a row of arcane charms behind the merchant. He was a thin, bearded human with pale skin and age past whatever prime he may have had.   
+Whatever conversation those two were having dissipated as she walked up to the stall where the two knights conducted their interrogation against the Zantchean merchant. As she got a closer look at all three of them, Shenael noticed a row of tonics, a row of talismans, and a row of arcane charms behind the merchant. He was a thin, bearded human with pale skin and age past whatever prime he may have had.   
 
 *This looks like a variety shop, not one specifically for medicine and the like. Even if those tonics are foreign, questioning that human to this extent…*  
 
@@ -523,7 +523,7 @@ Both him and his companion, another light man with long blonde locks and a narro
 
 “Away with you, girl\! This investigation stands between us and this human\!” declared the bearded knight.   
 
-“Does it, now? You’re disturbing the crowd over something so trivial here. And this doesn’t seem like a shady business or anything.” Shenael fired back before turning to the Zantche merchant. “What do you sell here?”  
+“Does it, now? You’re disturbing the crowd over something so trivial here. And this doesn’t seem like a shady business or anything.” Shenael fired back before turning to the Zantchean merchant. “What do you sell here?”  
 
 “Ah, uh, well, I’m just bringing some valuable goods over from Zantche, my homeland, but…” The Zantchean merchant stammered as he got his bearings together. “These two, they’ve been asking about my wares for the past few days and–”  
 
@@ -547,7 +547,7 @@ Shenael folded her arms as she stared down Rekolos. “Would a variety store lik
 
 “There’s no way I’d be\! If I was, these tonics would be far murkier\! You see how clear they are, right…uh, your Majesty?” said the Zantchean merchant, unsure of what the correct address for Xaede royalty was.  
 
-“How interesting. Do tell, how would you know that?” Desmeus unsheathed his sword, revealing a red sigil of diamond outlines in the blade’s fuller. As he pointed it at the now terrified merchant, the other civilians backed away, some exclaiming in shock and horror.  
+“How interesting. Do tell, how would you know that?” Desmeus unsheathed his sword, revealing a red sigil of diamond outlines in the blade’s fuller. As he pointed it at the now terrified merchant, the other civilians backed away, some exclaiming in shock and horror. 
 
 “B-b-because I-I-I…oh, gods, please, I beg, spare me, I–”  
 
