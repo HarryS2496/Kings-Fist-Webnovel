@@ -443,11 +443,11 @@ Shenael gave the coins to Ramanari. He nodded upon feeling their weight in his h
 
 “It’s not often we see southeasterners here. Hope your stay in Xaede’s been well.” she commented.  
 
-“Eh, we’ve been getting that a lot; most of Axiom up here forgets about the southeast exists down there.” Ardhari shrugged. “Good thing your lands know charity better than most of them, I’ll tell you that\!”  
+“Eh, we’ve been getting that a lot; most of Axiom up here forgets about the southeast down there.” Ardhari shrugged. “Good thing your lands know charity better than most of them, I’ll tell you that\!”  
 
 “You said you were from…the Yajurv Empire, right? What’s the difference between ‘Sri’ and ‘Krish’ there?”  
 
-“Funny enough, this kingdom reminds me of it a little bit.” he chuckled. “Only instead of an above and below where white and dark elves come and go, it’s the west vs the east of the empire the Khans wrangle on the daily.”  
+“Funny enough, this kingdom reminds me of it a little bit.” he chuckled. “Only instead of an above and below where white and dark elves come and go, it’s the west versus the east of the empire the Khans wrangle on the daily.”  
 
 “And there are no trees to stop the sun’s scorching.” Ramanari added quietly.   
 
