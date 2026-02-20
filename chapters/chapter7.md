@@ -226,7 +226,7 @@ One Sage of Dark, an elderly man that Shenael struggled to remember the name of,
 
 “And yet Zantche still struggles to decide one over the other.” Rueltabre sighed as he softly tapped a finger on the table. “Pity that such a bountiful province carries a legacy of being so wishy-washy.”  
 
-“Such is the curse of a prosperous demesne surrounded by behemoths.” added Criteas, politely regaining control of the table. “Meanwhile, we of Xaede hold too many cards to remain ignored, even as this forest stands by the wayside. It is only a matter of time before both Ashwright and Lambda turn to us for a similar alliance.”   
+“Such is the curse of a prosperous demesne surrounded by behemoths.” added Crideas, politely regaining control of the table. “Meanwhile, we of Xaede hold too many cards to remain ignored, even as this forest stands by the wayside. It is only a matter of time before both Ashwright and Lambda turn to us for a similar alliance.”   
 
 “Yes, I can already hear King Sherman attempting to remind us of the times we were once allies. That, or he’ll pester us with the practical military costs of both sides.” suspired Mennae.  
 
@@ -304,7 +304,7 @@ This was not the first they had heard of the tactics brought to the council, and
 
 *Why’s he still asking me? Is this some test they all planned in advance?*  
 
-She awkwardly glanced at each of the Sages, then to Criteas. His icy frown was enough proof that such was not the case. Both he and Rueltabre remained unfettered by the silence.   
+She awkwardly glanced at each of the Sages, then to Crideas. His icy frown was enough proof that such was not the case. Both he and Rueltabre remained unfettered by the silence.   
 
 Inspired by their resolve, she turned back to Solinde. “That proposal assumes we can keep that kind of deal a secret from Ashwright, which I imagine is easier said than done. They have the means and enough of a grudge against Lambda to not overlook something like that.”  
 
@@ -312,15 +312,15 @@ Inspired by their resolve, she turned back to Solinde. “That proposal assumes 
 
 *Damn it, he’s got me there. What do I–*  
 
-“Speak for yourself, Master Solinde.” Criteas declared, barely hiding his contempt at his senior’s insinuations. “To ally with Lambda in secret requires far too many precautions, each of which Ashwright could intercept without trouble. If such a deal gets made public knowledge in Axiom, we will have far more than two kingdoms to worry about in the long game.”  
+“Speak for yourself, Master Solinde.” Crideas declared, barely hiding his contempt at his senior’s insinuations. “To ally with Lambda in secret requires far too many precautions, each of which Ashwright could intercept without trouble. If such a deal gets made public knowledge in Axiom, we will have far more than two kingdoms to worry about in the long game.”  
 
 “And even if a deal like that were to succeed, King Hans lives by his greed.” Rueltabre added. “I have seen it firsthand; he will not stop at mere allegiance. He’ll demand and demand until our forests become a shell of what they used to be.”  
 
 “I am well aware of that, Elder Master Rueltabre.” Solinde quickly fired back. “But it is these kings that must bend the knee in gratitude for our might, not the other way around.”  
 
-Criteas calmed himself with a long breath before continuing his own rebuttal. “Then you should also be aware that both kings carry too much pride to ever let that happen. And let’s say they are driven to ‘eat our rotting dregs.’ Why starve Lambda over Ashwright?”  
+Crideas calmed himself with a long breath before continuing his own rebuttal. “Then you should also be aware that both kings carry too much pride to ever let that happen. And let’s say they are driven to ‘eat our rotting dregs.’ Why starve Lambda over Ashwright?”  
 
-“Because I have not forgotten *that day*, Master Criteas.”  
+“Because I have not forgotten *that day*, Master Crideas.”  
 
 “...As in the day Ashwright took the Zedrunae from us?”  
 
@@ -346,19 +346,19 @@ Though Shenael expected this reaction, she still flinched.
 
 Solinde fell silent at last, but remained ill-content.   
 
-“So then, Sages. To all in favor of going along with Master Solinde’s plan, raise your hand and say ‘aye.’” Criteas concluded.  
+“So then, Sages. To all in favor of going along with Master Solinde’s plan, raise your hand and say ‘aye.’” Crideas concluded.  
 
 No one said a word.  
 
 “Well? What say you, Master Solinde?”   
 
-“This will not be the last time we will discuss this matter, Master Criteas. I can assure you of that.”  
+“This will not be the last time we will discuss this matter, Master Crideas. I can assure you of that.”  
 
 “Eh, don’t look too glum, you’ll get them next time.” reassured Annae.  
 
 “Your patronization is unwelcome here, girl.” he grumbled in residual irritation.  
 
-“Now, for the next order of business.” Criteas clapped his hands once to get the council’s attention. “Master Icarr, I believe you have more to report regarding the state of our militia. How will they fare in the years to come.”  
+“Now, for the next order of business.” Crideas clapped his hands once to get the council’s attention. “Master Icarr, I believe you have more to report regarding the state of our militia. How will they fare in the years to come.”  
 
 “Well enough to grant us safety against rogues and beasts alike; we still have no need for any of the Zedrunae. But…”  
 
