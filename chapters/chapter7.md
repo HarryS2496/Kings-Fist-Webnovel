@@ -498,7 +498,8 @@ Ramanari was the first to comment from afar. “I recognize them. They questione
 
 *So they’ve been at this without warrants, too.*  
 
-“...Hmph, anyway, if it hadn’t been for them, we would have nothing to sell anymore.”  
+“...Hmph, anyway, if it hadn’t been for them, we would have nothing to sell anymore.”
+
 Ardhari had put all the four skewers in a bag and handed it to Shenael. “They likely can’t arrest that man if the accusations turn out false, but that’s never stopped any knight before. I get that drugs and plants go through rigorous checks here, but is it normal for them to be so uppity about it?”  
 
 “...No.” Shenael had equipped her fingerless gloves during the exposition.  
