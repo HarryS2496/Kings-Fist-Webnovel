@@ -348,7 +348,11 @@ Solinde fell silent at last, but remained ill-content.
 
 “So then, Sages. To all in favor of going along with Master Solinde’s plan, raise your hand and say ‘aye.’” Crideas concluded.  
 
-No one said a word.  
+No one said a word. 
+
+“All in favor of considering an alliance with Ashwright when the time ripens, raise your hand and say ‘aye.’”
+
+Ayes and raised hands spread across the table. Satisfied, Shenael's father scribbled down some notes for the votes and folded his hands.
 
 “Well? What say you, Master Solinde?”   
 
