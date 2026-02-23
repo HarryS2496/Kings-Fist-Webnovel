@@ -206,7 +206,7 @@ Shenael sat to the right side of Crideas, while her grandfather, Rueltabre, sat 
 
 Shenael glanced at Crideas again. Despite his seriousness, Shenael could still spot a tinge of irritation on his face, sharing a similar sentiment to hers.  
 
-“Let’s stay focused before this becomes another idle meeting, fellow Sages.” He raised his hand to silence the room. “I had planned to start this off by asking for any reports on internal issues within this realm, but what Icarr speaks is also of vital importance, so let him proceed.”  
+“Let’s stay focused before this becomes another idle meeting, fellow Sages.” He raised his hand to silence the room. “I had planned to start this off by asking for any reports on internal issues within this realm, but what Master Icarr speaks of is also of vital importance, so let him proceed.”  
 
 “Thank you, friend.” Icarr smirked as he slouched back in his seat, opposite to Crideas’s. “It’s quite simple, really. Ashwright and Lambda stare each other down once again, and talks of war loom over the horizon once again. As the human nations around us grow more tense, more of us have come to blows with rogues attempting to light the fire. What are we to do about that?”  
 
@@ -244,7 +244,7 @@ A series of ayes and nods spread across the round table. An easy opportunity for
 
 All eyes turned to her. A situation she still felt taken aback by, but could still withstand.  
 
-“Regarding the rogues that have appeared recently around our territory, we have to keep them as a separate issue from Ashwright and Lambda. We’ll need to quell those separately while considering which of the two kingdoms is the lesser evil here. Sage Icarr, I understand you likely have your own reservations on that since your daughter was in a squadron assigned to quell one of them.”  
+“Regarding the rogues that have appeared recently around our territory, we have to keep them as a separate issue from Ashwright and Lambda. We’ll need to quell those separately while considering which of the two kingdoms is the lesser evil here. Master Icarr, I understand you likely have your own reservations on that since your daughter was in a squadron assigned to quell one of them.”  
 
 “That I do.” Icarr rolled his neck and leaned forward.  
 
@@ -282,15 +282,15 @@ He was the only one at the table who remained still when the rest were in agreem
 
 “Indeed they would, Lady Shenael. Ashwright is closer to our forests, and I’ve seen their soldiers use them as training grounds.” answered the long-bearded Sage that Shenael still struggled to remember the name of. “Time is always of the essence, so months mustn't be wasted on educating an ally from scratch.”  
 
-“Cowardice, Remonde. Cowardice.” retorted a scornful Solinde.  
+“Cowardice, Master Remonde. Cowardice.” retorted a scornful Solinde.  
 
-*Oh yeah, that’s what his name was. Sorry I forgot, Remonde.*  
+*Oh yeah, that’s what his name was. Sorry I forgot, Master Remonde.*  
 
-“Hmph, you’re more sour than usual today, Solinde. Is this a matter to trace back to your digestion?” Remonde frowned.  
+“Hmph, you’re more sour than usual today, Master Solinde. Is this a matter to trace back to your digestion?” Remonde frowned.  
 
 “Just because Lambda’s king is no better than a delirious primate does not mean their army is of the same intelligence. Propose a deal in secret when the time is ripe, then the rest will follow.”   
 
-“It sounds as if you’re in support of Hans, Solinde.” Annae raised her eyebrow.  
+“It sounds as if you’re in support of Hans.” Annae raised her eyebrow.  
 
 “No, it sounds as if none of you heard me properly.” His voice grew colder. “This is about waiting for *when the time is ripe*. Wait for doubt to cloud Lambda during their staredown against Ashwright, amplify their desperation for more firepower, and propose the deal right as they salivate for one. The goal is to starve them to near oblivion so that they’ll settle for rotting dregs. *That* is what I suggest.”  
 
@@ -356,7 +356,7 @@ Ayes and raised hands spread across the table. Satisfied, Shenael's father scrib
 
 “Well? What say you, Master Solinde?”   
 
-“This will not be the last time we will discuss this matter, Master Crideas. I can assure you of that.”  
+“This will not be the last time we will discuss this matter, Master Crideas. I can assure you of that.” Solinde whispered in the silence. 
 
 “Eh, don’t look too glum, you’ll get them next time.” reassured Annae.  
 
