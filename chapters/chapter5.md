@@ -472,7 +472,7 @@ The silent air no longer surrendered to such enervated jabs.
 <br>
 <br>
 
-“Now there’s something I find hard to believe.” Pendra called out.  
+“Now that's hard to believe.” Pendra called out. 
 
 “And why’s that?”  
 
@@ -542,7 +542,7 @@ Gerwyn’s body fought the temptation to stop, unable to decide the better outco
 <br>
 <br>
 
-“Okay, settle down already, both of you; I didn’t come up with that anyways.” assured an exasperated Georg. “That one’s a mere throwaway from some envious folk too amusing to omit from memory. It had to be said.”   
+“Okay, settle down, both of you; I didn’t come up with that anyways.” assured an exasperated Georg. “That one’s an amusing throwaway from some envious folk. It had to be said.”   
 
 Gehenna, ever the intrigued inquisitor, was suddenly glad Nadis’s full attention was on Lily. “So it’s safe to assume she’s never told us this as an exercise in humility of sorts?”  
 
@@ -694,7 +694,7 @@ Pendra took a spoonful of the black gruel and beans from his bowl and steeled hi
 
 “Huh\!? No…uh…what are you talking about? This stuff’s delicious\!” She shifted her eyes awkwardly, then hurriedly scarfed more bites, trying desperately to fight against the taste. “Urk\!”  
 
-“Yeah, sure looks delicious, doesn't it, Miss 0 to 7?” Pendra smugly grinned as he took another bite.  
+“Yeah, sure is scrumptuous, eh, Princess 0 to 7?” Pendra smugly grinned as he took another bite.  
 
 “Shaddap\!\!” Lily shouted through tears of agony and more bites.  
 
