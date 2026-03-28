@@ -163,7 +163,7 @@ Vega clenched her teeth and grimaced in pain recalling the events.
 <br>
 <br>
 
-<h3>450, 27st of Trionedre</h3>
+<h3>450, 27th of Trionedre</h3>
 
 **RUMBLE.**  
 
