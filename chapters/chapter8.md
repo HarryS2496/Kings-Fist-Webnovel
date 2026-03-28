@@ -623,11 +623,11 @@ Shenael looked outside through the front window and, to her surprise, the light 
 
 “Yeah, I should get back before my family starts to worry. Thank you both for your hospitality, Master Icarr, Lady Marisael.”  
 
-“No, thank you for stopping by, Lady Shenael. Do visit again sometime, Vega would love you to drop by her sickbed.” waved Icarr.  
+“No, thank you for stopping by, Lady Shenael. Do visit again sometime, Vega would love for you to drop by her sickbed.” waved Icarr.  
 
-*Good thing she’s not awake to vehemently deny that.*  
+*Good thing she’s not awake to deny that.*  
 
-“Yes, do take care, now\! I’d advise you to be careful on your way back, Lady Shenael, but considering that recent stunt you pulled against those defective *Meda* knights, you’ll do fine.” added Marisael.  
+“Yes, do take care, now\!" added Marisael. "I’d advise you to be careful on your way back, Lady Shenael, but considering that recent stunt you pulled against those defective *Meda* knights, you’ll do fine.”  
 
 Shenael was initially taken aback by how quickly the news spread, but then she looked over to Creslende to find him sheepishly ruffling the back of his head.  
 
@@ -749,7 +749,7 @@ Shenael felt taken aback by how brisk her father’s declaration was.
 
 “And I mean not to judge,” Crideas reassured. “Though personal attachments must be separate from the Nexus, it is not wrong to have them regardless. And to be honest…Kathenael and I have thought long about it too.”  
 
-“Neither of us got to thank that boy Gerwyn for helping you for all those years,” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited. And…I miss Beatrice almost as much as your father here misses Sherman.”   
+“Neither of us got to thank that boy Gerwyn for helping you for all those years; he was a brilliant child.” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited; they’re not humans one could easily find ill will in. And I miss Beatrice almost as much as your father here misses Sherman.”   
 
 *Oh boy, here we go again.*  
 
@@ -761,7 +761,7 @@ Rueltabre grinned before adding fuel to the fire. “No need to deny it, my son,
 
 “And what are the chances of that happening? Sherman’s not that talkative.”  
 
-“Alright, alright, enough of this, both of you. That was then, and this is now.” Crideas silenced.  
+“Alright, alright, enough, both of you. That was then, and this is now.” Crideas silenced.  
 
 Shenael lacked the context for what was told, but it did not stop her from stifling her laughter at their faces.  
 
@@ -773,11 +773,10 @@ Shenael lacked the context for what was told, but it did not stop her from stifl
 
 “Time moves forward no matter how far you look backward, Shen.” added Rueltabre. “Right now, focus the best you can on what’s in your control before pondering too much on what isn’t. Word’s already caught on about what you did back in Talon VI, just keep that up and see how far it gets you.”  
 
-“Right.” Shenael nodded again, more determined this time.  
+“Right.” Shenael nodded again.  
 
 “Speaking of that, by the way,” annotated Crideas. “We’ll also have to bring up that encounter in the next meeting. Be ready to have your account of what happened there; write it down if you must. I know not why there are now *Meda* knights disrupting order in our trade districts or why they mentioned *hushpoppy* of all things, but if there’s more to the picture, then this cannot be overlooked.”  
-
-Shenael nodded a third time, and Crideas smiled for the first time today.  
+Shenael nodded a third time with newfound determination, and Crideas smiled for the first time today.  
 
 “Good, then.”  
 
