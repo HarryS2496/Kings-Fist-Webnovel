@@ -722,9 +722,9 @@ Shenael nearly grinned at Crideas’s praise, but uncertainty crept at her. “T
 
 “Then he’s not entirely wrong about that either.”  
 
-“Why is that?” inquired Kathenael.   
+“Why?” inquired Kathenael.   
 
-Shenael had almost finished her meal by this point, but she put down her fork, wiped her mouth, and folded her hands out of a desire to contemplate.   
+Shenael had almost finished her meal by this point, so she put down her fork, wiped her mouth, and folded her hands out of a desire to contemplate.   
 
 “I guess it’s because…that time I spent in Ashwright as a kid just isn’t something I can forget about that easily. I’ve been having all these dreams where I relive fragments of those memories for a while now, and all this talk of them and Lambda likely getting into another war…*ergh*. Even after that whole history lesson I asked from Master Icarr about who King Sherman was before he rose to power, my head’s spinning from the whole slew of pros and cons to consider.  
 It’s not like I’m willing to accept Ashwright with open arms or anything; as Master Icarr said himself, we’re standing between two wildfires hellbent on consuming each other, and this is about deciding which of the two will burn us less in the long run. Or, as he called it, picking the least dangerous poison.”  
@@ -821,7 +821,7 @@ Before heading to bed, Shenael got to writing her account of the events that tra
 
 Upon finishing, she slumped back in her chair and let out an exhausted groan. The silent night outside of her window would have prompted her to change into sleepwear if laziness had not overcome her.  
 
-*Seven be damned, what a day.*   
+*What a day.*   
 
 Perhaps it was serenity, strewn from fleeting memories of both the distant past and earlier today that kept her awake.  
 
