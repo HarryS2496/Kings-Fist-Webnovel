@@ -745,7 +745,7 @@ Shenael felt taken aback by how brisk her father’s declaration was.
 
 *Is it that obvious now?*  
 
-“Yeah…look, I know I can’t let the existence of a best friend I used to know get in the way of a political judgement here and all–”  
+“Yeah…look, I know I can’t let *his* existence get in the way of a political judgement here and all–”  
 
 “And I mean not to judge,” Crideas reassured. “Though personal attachments must be separate from the Nexus, it is not wrong to have them regardless. And to be honest…Kathenael and I have thought long about it too.”  
 
