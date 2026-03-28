@@ -599,7 +599,7 @@ With a gesture and a nod, she urged him to continue. And so Icarr did.
 The point is this; his campaign was founded by reason, and not one of pure delusion, no. It was born from sharpened *hatred*. In all the years I have breathed on this soil, I have never seen one hate anything like he and the Ashfolk do with the Lambda of today, and who could blame them for it? But now? The reasoning matters less as the weight of actions command the stage.  
 Hatred is a *wildfire*, Lady Shenael. A *diseased wildfire*. No matter how founded or justified it may be…no matter how well contained it may look in a cage, it consumes and devours all in its path; it stops at naught until all has reduced to dust. We of Xaede are but bystanders in the onslaught of two ambitious infernos, burning the brightest I’ve seen in all the years I’ve lived on this soil. The time to choose which to douse draws closer with each day; to remain neutral as they burn the skies above and earth below…is no longer an option.”  
 
-“...Master Mennae wasn’t lying earlier. There is no right answer on which side to take.” Shenael gravely remarked.  
+“...Master Mennae wasn’t lying earlier. There's no right answers here.” Shenael gravely remarked.  
 
 “Such is a ruler’s creed.” Icarr looked out the front window to his left. “Discerning the least painful toxins to ingest is a skill required in any position of command. Ashwright may be the lesser poison, but a poison nonetheless. The Ashfolk are an odd lot; somehow, after years of a prosperous alliance between the North’s two strongest, they indulge in a mixed perception of us elvenkind."  
 
