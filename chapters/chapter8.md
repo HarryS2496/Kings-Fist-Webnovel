@@ -38,11 +38,11 @@ Only this routine would do the trick, as it always did.
 
 “250\!\!”  
 
-Her strongest kick yet smashed into the oak tree, turning the tree’s light scar into a visible gash.   
+Her strongest kick yet smashed into the oak tree.   
 
 “Ack\!”  
 
-She drew her leg back and stared at the gash, almost in awe at what such frustration could channel within her bones. As the adrenaline within her calmed its pulse, her right leg’s pain from the recoil grew louder, enticing her to sit down on the nearby flat rock and tend to it.  
+She drew her leg back and stared at the gash, almost in awe at what such frustration could channel within her bones. As the adrenaline calmed its pulse, her right leg’s pain from the recoil grew louder, enticing her to sit down on the nearby flat rock and tend to it.  
 
 *Well, not like it’s anything new.*  
 
