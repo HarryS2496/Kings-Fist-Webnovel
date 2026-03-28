@@ -264,8 +264,6 @@ The world around Vega suddenly began spinning once her body had failed her. Some
 <br>
 <br>
 
-<h3>750, 5th of Quadedre</h3>
-
 “When I came to, the one remaining quarter– no, it was less than that. Only 21 out of the 120 in our squadron still lived, marching in silence back to here.” Vega said to finish off her solemn recounting.  
 
 “Gods alive.” stated a surprised Shenael. “Ballsy to pick a fight with me when you 'almost died' back there.”  
