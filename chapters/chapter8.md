@@ -846,7 +846,7 @@ A thought of the distant kingdom higher in the North crossed her mind when she l
 
 Gerwyn woke up to another early morning, assaulted by a dull, cramping pain in his arms as he got up.  
 
-At first, everything felt worse than yesterday’s morning. A full night’s rest could only do so much to keep the lingering exhaustion of his muscles at bay.   
+At first, everything felt worse than yesterday’s morning and the day before. A full night’s rest could only do so much to keep the lingering exhaustion of his muscles at bay.   
 
 *Has it been that long since I last pushed my arms this far?*  
 
