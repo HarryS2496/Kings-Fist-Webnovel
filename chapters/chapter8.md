@@ -749,7 +749,7 @@ Shenael felt taken aback by how brisk her father’s declaration was.
 
 “And I mean not to judge,” Crideas reassured. “Though personal attachments must be separate from the Nexus, it is not wrong to have them regardless. And to be honest…Kathenael and I have thought long about it too.”  
 
-“Neither of us got to thank that boy Gerwyn for helping you for all those years; he was a brilliant child.” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited; they’re not humans one could easily find ill will in. And I miss Beatrice almost as much as your father here misses Sherman.”   
+“Neither of us got to thank that boy Gerwyn for helping you for all those years; he was a brilliant child.” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited. And I miss Beatrice almost as much as your father here misses Sherman.”   
 
 *Oh boy, here we go again.*  
 
