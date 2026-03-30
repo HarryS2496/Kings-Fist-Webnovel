@@ -498,11 +498,11 @@ What felt like mere seconds to the world became minutes to him.
 
 **Thump.**  
 
-*No, what the hell am I thinking, writing this off? Even if there’s no reason, taking responsibility is important. This happened because of my ignorance, yet Mercer is getting punished. If I let this pass, I’ll be complicit in his death.*   
+*No, what the hell am I thinking, writing this off? Even if there’s no reason, taking responsibility is important. This happened because of my ignorance, yet Mercer is getting punished.*   
 
 **Thump.**  
 
-*I can’t become a murderer over an incident like this. So it’s time to speak up for once.*  
+*If I let this pass, I’ll be complicit in his death.*
 
 A deep breath finally put his heart at ease. To his father, it was a silent cue to listen.  
 
@@ -524,8 +524,6 @@ The silent atmosphere of the office grew more intense with each passing second.
 
 “Yet it was in self defense, therefore that can be overlooked. What matters is that he chose to pick the battle.”  
 
-*No surprise that’s what he would say.*   
-
 Gerwyn’s mind scrambled furiously to find the right words for the conversation.  
 
 *Gah, think harder\! There has to be some other way I can object\!*  
@@ -546,7 +544,7 @@ Gerwyn felt the eyes of *It* piercing into him once again.
 
 They came from the King, the Authority, and the Fury all at once.  
 
-*You can’t falter here, Gerwyn. Not after climbing that tower twice.*   
+*You can’t falter here, Gerwyn. Not after climbing that tower.*   
 
 “Look, this…is too excessive, even for Ashwright’s creed.”  
 
@@ -566,7 +564,7 @@ It had been far too long since he had spoken up in a matter such as this.
 
 The impact from Mercer’s fist had knocked him off the chair.   
 
-Pain seared through both his right cheek and left side as he struggled to recover from the blow.  
+Pain seared through both his right cheek and left side as he struggled to recover from the blow. Pendra quickly checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability.
 
 “A death sentence, you say? Speak for yourself, *wretch*.” said Mercer, uncaring of the shock he had drawn in the office.  
 
@@ -598,7 +596,7 @@ The Authority knew this long before today, but to restrain the Fury was to commi
 
 “‘That’s not’ what? What, are you trying to say it still isn’t possible? You think because you’re too weak to even count as a person, it means you’ve got some perspective on weakness or some pretentious hogwash? Don’t make me–”   
 
-“Mercer, stop\!\! You’re just digging your own epitaph at this point\!\!” Pendra stood up to cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
+“Mercer, stop\!\! You’re just digging your own epitaph at this point\!\!” Pendra cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
 
 “Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be of the same blood, but there’s a difference between us. Dregs like you cower behind the dresses of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
 
@@ -666,7 +664,7 @@ The two brothers were about to sigh a breath of relief in unison–
 
 “Are you sure about that, Mother?” Victor objected. “There’s a good reason we’ve put these two here for judgement as well.”  
 
-Pendra’s interrupted moment to relax had soured his demeanor into irritation. “*Come on*, Vic, it’s been long enough and we’ve done our job as witnesses. It’s getting late, can we just–”  
+Pendra’s interrupted moment to relax had soured his demeanor into irritation. “*Come on*, Vic, it’s getting late, can we just–”  
 
 “Silence, Pendra. You and Gerwyn have spoken enough.” he snapped.  
 
