@@ -156,7 +156,7 @@ This time, Shenael was the one to break the silence. “So, about those rogues y
 
 “We are not far from the seas, either. And landfaring is no weakness of theirs. …It almost seemed they knew the frontlines before banditry. Nothing close to mere brigands.”  
 
-“Of the 100 troops in your squadron investigating the outer forests, the casualties were more than half, right?”   
+“Of the 120 troops in your squadron investigating the outer forests, the casualties were more than half, right?”   
 
 Vega clenched her teeth and grimaced in pain recalling the events. 
 
