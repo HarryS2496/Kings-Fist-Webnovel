@@ -916,7 +916,7 @@ The two had known each other well enough for less biting conversations, but Merc
 
 *How the hell do I do that without Victor or some other general breathing down my neck? I need access to a better ground for training myself, but what do I do to get there?*  
 
-“That doesn’t make it better, y’know\! Listen, all you have to do is just…”  
+“That doesn’t make it better\! Listen, all you have to do is…”  
 
 Pendra trailed off, for he noticed someone else walking on the opposite end of the hallway.  
 
@@ -930,7 +930,7 @@ At first, Mercer went with the instinct to ignore him, but an opportunity sudden
 
 An opportunity that would answer his own question.  
 
-“Tch, let’s go. I’ve got places to be, after all…” Mercer groused as he kept walking.  
+“Tch, let’s go. I’ve got places to be.” Mercer groused as he kept walking.  
 
 “Uh…alright then.” Pendra, unaware, followed behind closely.  
 
