@@ -516,13 +516,13 @@ The silent atmosphere of the office grew more intense with each passing second.
 
 “Well…I was the one who bumped into him, and…didn’t watch my step.”  
 
-“Yet he chose to pick the battle.”  
+“He chose this battle.”  
 
 **THUMP.**  
 
 “I’m the one…who landed the first hit.”  
 
-“Yet it was in self defense, therefore that can be overlooked. What matters is that he chose to pick the battle.”  
+“Yet it was in self defense, so it can be excused. He chose this battle.”  
 
 Gerwyn’s mind scrambled furiously to find the right words for the conversation.  
 
@@ -534,7 +534,7 @@ He swallowed a lump in his throat.
 
 “U-um, then…isn’t there another way to serve justice for this case?”  
 
-“There is none more suitable.” Sherman immediately replied. “Unless you have a suggestion for a punishment instead, this is the only fitting judgement.”  
+“There is none more suitable.” Sherman immediately replied. “Unless you have a suggestion, this is the only fitting judgement.”  
 
 “I don’t have one, but…”  
 
@@ -543,8 +543,6 @@ He swallowed a lump in his throat.
 Gerwyn felt the eyes of *It* piercing into him once again.   
 
 They came from the King, the Authority, and the Fury all at once.  
-
-*You can’t falter here, Gerwyn. Not after climbing that tower.*   
 
 “Look, this…is too excessive, even for Ashwright’s creed.”  
 
