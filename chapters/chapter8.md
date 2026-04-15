@@ -380,7 +380,7 @@ Creslende let go of Vega and rambled on, “I kept staring at the mask’s mouth
 
 “Hear, hear,” agreed Shenael as she tore one last bit out of her first chocoroll. “As much as I’d like to show Vega the vision too, let’s hold off on giving her any for now. Right now, she’s in no state to eat non-soup.”  
 
-“Silence, you\! These injuries are meaningless in the face of what *Deledeca* offers.”   
+“Silence, you. These injuries are meaningless in the face of what *Deledeca* offers.”   
 
 “For you, I brought something different, dummy\~.” he sharply corrected before bringing out the first-aid chest. “We need to change your bandages right now, they’re getting worn out\!”  
 
@@ -412,7 +412,7 @@ Finally, with a sharp breath of relief, Creslende gleefully said, “Alright, ba
 
 *Damn, have I been here that long?*   
 
-“Ah, wait, Vega, stop\! Here, let me help you walk down, the path gets pretty steep on the way down\!” he warned.  
+“Ah, wait, Vega, stop\! Here, let me help you walk down, the path gets steep there\!” he warned.  
 
 Vega’s pride would not have it. “I am no toddler, and this *path* is nothing. Just follow and let me handle this…”  
 
@@ -420,7 +420,7 @@ Shenael could not resist looking up at the sky again, now a pale, burnt sienna s
 
 *If I had more time to spare, I’d keep practicing my kicks, but…*  
 
-“Hey, Shen\~\! Please help me get Vega down carefully before– ah, no\! She fell down\! Vega, are you okay\!?” cried Creslende.  
+“Hey, Shen\~\! Please help me get Vega down carefully before– ah, no\! She fell\! Vega, are you okay\!?” cried Creslende.  
 
 When duty calls, trances must be silenced.  
 
