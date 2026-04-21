@@ -378,13 +378,11 @@ Creslende let go of Vega and rambled on, “I kept staring at the mask’s mouth
 
 “Well, I’m still not, but I found a reason why people eat it,” he grinned as if coming to a big discovery. “The sweets you have right after something so spicy make both feel sooo much better\!”  
 
-“Hear, hear,” agreed Shenael as she tore one last bit out of her first chocoroll. “As much as I’d like to show Vega the vision too, let’s hold off on giving her any for now. Right now, she’s in no state to eat non-soup.”  
+“Hear, hear,” agreed Shenael as she tore one last bit out of her first chocoroll. “As much as I’d like to show Vega the vision too, let’s hold off on giving her any for now. Right now, she’s in no state to eat non-soup.”     
 
-“Silence, you. These injuries are meaningless in the face of what *Deledeca* offers.”   
+“For her, I brought something different\~.” he corrected before bringing out the first-aid chest. “We need to change your bandages right now, they’re getting worn out\!”  
 
-“For you, I brought something different, dummy\~.” he sharply corrected before bringing out the first-aid chest. “We need to change your bandages right now, they’re getting worn out\!”  
-
-“Wha–? I’ll handle the bandages myself, there’s no need to–”  
+Vega was taken aback. “Wha–? I can handle the bandages myself, there’s no need to–”  
 
 “With those broken ribs? And after walking all this way without proper rest like a dummy would? No, you’re not getting off easy this time; now let me change your bandages\!”  
 
