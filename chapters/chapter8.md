@@ -603,7 +603,7 @@ Shenael did not dare comment on this grave lesson in history; to do so was to wa
 
 *If the King of Ashwright was strong enough to beat Sage Icarr, the Apostle of War, and leave him this conflicted decades later, then…*
 
-“Well, such is a ruler’s creed.” Icarr relaxed himself to ease the tension he had created, then looked out the front window to his left.“Discerning the least painful toxins to ingest is a skill required in any position of command. Ashwright may be the lesser poison, but a poison nonetheless. The Ashfolk are an odd lot; somehow, after years of a prosperous alliance between the North’s two strongest, they indulge in a mixed perception of us elvenkind."  
+“Well, such is a ruler’s creed.” Icarr attempted to relax himself with a long breath. “Discerning the least painful toxins to ingest is a skill required in any position of command. Ashwright may be the lesser poison, but a poison nonetheless. The Ashfolk are an odd lot; somehow, after years of a prosperous alliance between the North’s two strongest, they indulge in a mixed perception of us elvenkind."  
 
 “So that, I don’t get. Does the ‘mixed reception’ there come from Xaede’s neutrality? Or do the Ashfolk just want to see Lambda annihilated that badly?”  
 
