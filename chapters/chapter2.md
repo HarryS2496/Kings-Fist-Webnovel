@@ -586,7 +586,7 @@ This door too, was an old friend of his. Though he had seen it many times, it ne
 
 The door did not respond.   
 
-“Fine then, keep those secrets as you always do, door to Floor 0. This isn’t over.”  
+“Fine then, keep those secrets as you always do, *almighty door to Floor 0*. This isn’t over.”  
 
 Gerwyn suddenly realized he was talking out loud.  
 
