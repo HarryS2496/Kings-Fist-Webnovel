@@ -510,6 +510,7 @@ Icarr stroked his sharp chin. “When Master Solinde made his speech earlier, Cr
 *Yeah, he was, now that I look back.*   
 
 “Begrudgingly, I think. I don’t know, it seems like a complex topic for him to speak of, so I haven’t asked.”  
+
 He then got up and walked to the small kitchen next to both of them. “Well, to be fair to him, Sherman is a subject of many emotions, be it worship or ire or what lies betwixt. Still, it was your father’s responsibility to show you a more personal picture of why that is, but perhaps I shall tell you in his stead.” He began to boil some water in a pot. “Do you care for lemongrass, Lady Shenael?”  
 
 “Yes, it’s one of my favorite tea flavors.” Shenael nodded.  
