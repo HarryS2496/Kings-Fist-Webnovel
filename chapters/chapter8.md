@@ -270,7 +270,7 @@ The world around Vega suddenly began spinning once her body had failed her. Some
 
 “I understand my recklessness, Shenael, but a force of brigands with *that* strength is not one to prepare against so lightly. Or do you need me to repeat myself slower this time?”  
 
-“No, don't bother, don't bother, I get the point. Those pirates somehow have access to *ashamascus* and jeweled spellrods; neither of which are easy to come by. In the next Nexus meeting, I’ll push for assembling a stronger force to drive them back to the seas.”  
+“No, don't bother, don't bother, I get the point. Those pirates somehow have access to *ashamascus* and jeweled spellrods; that's a mark of danger enough. In the next Nexus meeting, I’ll push for assembling a stronger force to drive them back to the seas.”  
 
 “Then make sure I attend that force once these injuries heal.”  
 
