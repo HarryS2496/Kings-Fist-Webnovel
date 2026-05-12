@@ -241,7 +241,7 @@ Vega fell to the muddied ground, still gripping her blade as if her life depende
 
 The mortal damage he had done to himself to execute such a reckless plan finally came back to bite him; before he could aim another stab at her to finish the job, his legs struggled to stand as his hands were at the now open wound.   
 
-Reinforcements for Xaede were fast approaching from faraway rustles and muddied footsteps, prompting Vega to smirk a little while Foxface clicked his tongue. To mitigate his bleeding and take away some spoils, he quickly lodged the aural blade back into his open stab wound.  
+Reinforcements for Xaede were fast approaching from faraway rustles and muddied footsteps, prompting Vega to smirk a little while Foxface frowned. To mitigate his bleeding and take away some spoils, he quickly lodged the aural blade back into his open stab wound.  
 
 *The tenacious man who dealt me these wounds was no exception to the rule. No, to our enemy, he was the rule. And far from the strongest of them, apparently.*  
 
@@ -525,7 +525,7 @@ Not long after, both of them had a medium-sized porcelain mug of lemongrass tea 
 
 “That may be for the best. Yes, this was during the time where both Ashwright and us first tried to close the distant bond of centuries past.”  
 
-*Oh, right, the two were still past the 100 year age mark that time. Maybe it’s because I used to be around humans a lot back in Ashwright, but my kin always look older than I think they are.*  
+*Oh, right, the two still hadn't passed the 100 year mark that time. Maybe it’s because I used to be around humans a lot back in Ashwright, but my kin are always older than what they look like.*  
 
 “Crideas and I first met him in our forests, during a sudden outbreak of behemoths as a party from Ashwright was sent to negotiate with us. Like migrating crows in a fearful daze, we rushed to obliterate the horde, praying no second would be too late to save humans from death.  
 But…what we saw amidst the corpses of beasts, was a youth in royal clothing.   
@@ -534,7 +534,7 @@ A ruthless one with droves of behemoths behind him and his forces, but a youth n
 A stoic one capable of respect without desperation for good graces, but a youth, nonetheless.  
 I, bloated with confidence as the strongest blade of Xaede, challenged him to a duel, despite Crideas’s pleas. ‘It is impossible for this human and a small legion to have caused such a vicious massacre\! If I prove his skills are a farce, perhaps an underhanded ploy will come to light as well\!’ is what I thought. And, well…”  
 
-“You lost.” Shenael helped finish his thought.  
+“Somehow, you lost. My father mentioned something about that.” Shenael helped finish his thought.  
 
 Icarr drank a slow, large sip of his tea and straightened his long locks of raven black and charcoal grey hair. It seemed the consequences of his actions, though long ago, still knew when to sting at his soul.  
 
@@ -563,7 +563,7 @@ Icarr thought to himself for a while, then tapped a finger on the table.
 The Sage of Dark possessed the perception to answer that question, almost like he could read Shenael’s mind.  
 
 “What Sherman does, it is as a means against Lambda.  
-Our sacred Zedrunae? To him, a weapon to raze Lambda’s precious territory, where supplies and innocents were plenty.  
+Our sacred Zedrunae? To him, a weapon to raze Lambda’s territory, crops and innocents alike.  
 The wars fought between Ashwright and Lambda, about…4 as of now? To him, a mere motivator to push his kingdom towards a 5th.  
 The previous king, Yorhmon Ashwright? To him, a spineless wretch who dared to seek peace with Lambda, and one to be usurped.”  
 
@@ -577,7 +577,7 @@ The previous king, Yorhmon Ashwright? To him, a spineless wretch who dared to se
 Somehow, the scales returned an even balance.   
 Somehow, even after the patience of the Ashfolk and Lambdaeins alike were tested by terms and reparations being walked back time and again, the scales returned an even balance.”  
 
-“Until they got tipped to the right, which is what I mean to ask about. If it really was over some dubious terms that got changed around anyway, that would make the rebellion an overreaction not worth the attention of the populace majority. There’s something else besides all the terms that drove the Asfolk to rally behind Sherman as he usurped the throne, isn’t there?”  
+“Until they got tipped to the right, which is what I mean to ask about. If it was over some dubious terms that got changed around anyway, that would make the rebellion an overreaction not worth the attention. There’s something else besides all the terms that drove the Asfolk to rally behind King Sherman's rule, isn’t there?”  
 
 Icarr looked down, taking another solemn breath before speaking with grave caution.  
 
@@ -693,7 +693,7 @@ Rueltabre put his hands up. “Hey hey, my job as the Elder Master means I have 
 
 “It’s that same reasoning why the Round Table of the Sages still uses metaphors instead of proper words for serious issues.” Crideas dryly groused. “Call it poetry or what-have-you, but the records need the plain truth inscribed instead.”  
 
-*Thank you, Father\! It’s so nice that you too understand how confusing it gets when they keep using those dagger analogies and fabled quotes\!*  
+*Thank you, Father\! It’s so nice you understand how confusing it gets when they keep using those dagger analogies and fabled quotes\!*  
 
 “Ah, come now, live a little, my son. That’s boring.”  
 
@@ -803,7 +803,7 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 **BLAM.**  
 
-Before Shenael could swing a fist at Rueltabre's jaw, Crideas flung a gold coin at his head. It struck his nose with such force, the loud recoil flung him from his chair and felled him to the wooden floor\!  
+Before Shenael could swing a fist at Rueltabre's jaw, Crideas flung a gold coin at his nose. It struck him with such force, the loud recoil flung him from his chair and felled him to the wooden floor\!  
 
 A tinge of smoke burned off his thumb, so he blew it away.   
 
