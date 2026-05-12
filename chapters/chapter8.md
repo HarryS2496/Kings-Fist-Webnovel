@@ -585,7 +585,7 @@ Icarr looked down, taking another solemn breath before speaking with grave cauti
 
 Shenael’s eyes widened. A pit of half-regret, half-horror formed in her stomach.  
 
-“A circle of *depravity* well favored by Yohrmon and then-king Mars Lambda, father of King Hans. To my best recollection, more than half of them were involved in the terms to unite Ashwright and Lambda together.   
+“A circle of *depravity* well favored by Yohrmon and then-king Mars Lazarus, father of King Hans. To my best recollection, more than half of them were involved in the terms to unite Ashwright and Lambda together.   
 This specific peace we assisted in uncovering…it was never about joining honest hands. It was about finding a way to keep the circle’s funds and…*entertainment*…protected from prying eyes.”  
 
 Each word from Icarr’s recounting felt like a rotting poison boring itself into Shenael’s gut. Knowing the sting of his words, he stopped himself and took another sip of his tea.   
