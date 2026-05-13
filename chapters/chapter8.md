@@ -577,11 +577,11 @@ The previous king, Yorhmon Ashwright? To him, a spineless wretch who dared to se
 Somehow, the scales returned an even balance.   
 Somehow, even after the patience of the Ashfolk and Lambdaeins alike were tested by terms and reparations being walked back time and again, the scales returned an even balance.”  
 
-“Until they got tipped to the right, which is what I mean to ask about. If it was over some dubious terms that got changed around anyway, that would make the rebellion an overreaction not worth the attention. There’s something else besides all the terms that drove the Asfolk to rally behind King Sherman's rule, isn’t there?”  
+“Until they got tipped to the right, which is what I mean to ask about. If it was over some dubious terms that got changed around anyway, that would make the rebellion an overreaction not worth the attention. There’s something else that drove the Asfolk to rally behind King Sherman's rule, isn’t there?”  
 
 Icarr looked down, taking another solemn breath before speaking with grave caution.  
 
-“And it is seldom said in Xaede for a reason. One of Sherman’s sisters, protected by his closest comrades in arms…they were all *defiled* by a grand circle of Lambda’s nobility.”   
+“And it is seldom said in Xaede for a reason. One of Sherman’s sisters, protected by his closest comrades in arms…they were all *defiled* by a grand circle of Lambda’s nobility. More were...not long to follow.”   
 
 Shenael’s eyes widened. A pit of half-regret, half-horror formed in her stomach.  
 
@@ -715,9 +715,13 @@ Shenael nearly grinned at Crideas’s praise, but uncertainty crept at her. “T
 
 “Speaking of that, I must apologize for his outburst at today’s meeting.” Crideas lowered his head.  
 
-“Oh, there’s no need for something like that. And, well, to be fair to him, his sons and daughters all died fighting during the Battle of the Vanadis border, right? Asking him to ally with the kingdom responsible for that tragedy is a pretty hefty request.”  
+“Oh, there’s no need; and to be fair to him, his sons and daughters all died in battles involving Ashwright, correct?" 
 
-“Be that as it may, there is always a code of basic tact to keep, and he threw that to the wayside for ad hominem instead.”  
+"In both the previous wars against Lambda and the Battle at the Vanadis Border, yes." Rueltabre added.
+
+“Yeah, telling him it’s a good idea to ally with that kingdom after all that…it’s a loaded ask.”
+
+“Be that as it may, there is always a code of basic tact to keep, and he threw that to the wayside for ad hominem instead.” Crideas adjusted his shortened bangs while holding his stance firm.
 
 “...Is this about the comment he made regarding ‘personal bias,’ Father?”  
 
@@ -730,7 +734,7 @@ Shenael nearly grinned at Crideas’s praise, but uncertainty crept at her. “T
 Shenael had almost finished her meal by this point, so she put down her fork, wiped her mouth, and folded her hands out of a desire to contemplate.   
 
 “I guess it’s because…that time I spent in Ashwright as a kid just isn’t something I can forget about that easily. I’ve been having all these dreams where I relive fragments of those memories for a while now, and all this talk of them and Lambda likely getting into another war…*ergh*. Even after that whole history lesson I asked from Master Icarr about who King Sherman was before he rose to power, my head’s spinning from the whole slew of pros and cons to consider.  
-It’s not like I’m willing to accept Ashwright with open arms or anything; as Master Icarr said himself, we’re standing between two wildfires hellbent on consuming each other, and this is about deciding which of the two will burn us less in the long run. Or, as he called it, picking the least dangerous poison.”  
+It’s not like I’m willing to accept Ashwright with open arms or anything. Master Icarr said it himself, we’re standing between two wildfires hellbent on consuming each other, and this is about deciding which of the two will burn us less in the long run. Or, as he called it, picking the least dangerous poison.”  
 
 Crideas nodded in agreement and folded his arms. “Did Icarr also tell you about why Sherman committed patricide and usurped the throne?”  
 
@@ -793,9 +797,9 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 “And you do naught but stretch it into hours; we’re not getting to sleep if you start.” Crideas put a resigned hand to his forehead.  
 
-“Bah, this night is still a young one, boy; surely you could spare at least one tale? It might help keep *your* daughter’s dreams about her human boyfriend at bay.”  
+“Bah, this night is still a young one, boy; surely you could spare at least one tale?" A smug, wolfish grin began to spread across his face. "It might help keep little Shen’s dreams about her *human boyfriend* at bay.”  
 
-*This old bastard–\!\!*  
+*This damned geezer–\!\!*  
 
 “Rueltabre\! That’s rude\!” Kathanael protested.   
 
@@ -830,11 +834,9 @@ Perhaps it was serenity, strewn from fleeting memories of both the distant past 
 
 Perhaps it was uncertainty, a vivid, ominous mural painted through the knowledge and awareness gained from both the Nexus and Icarr.  
 
-*I was hoping for a reason to travel somewhere else in Axiom, but now that’s unsafe thanks to this fiasco we’re dealing with.*  
-
 Perhaps it was that in this quiet home where she spent her days, the need to understand the dangers across the rest of Axiom took hold of her pondering.  
 
-*It’s not just Talon VI or Xaede. Everywhere’s starting to get unsafe, apparently. If the possibility of war between those two kingdoms comes to a head, then…*  
+*It’s not just Talon VI or Xaede. Back then, I hoped for a reason to travel, but rumors of these tensions hitting other powers in Axiom are coming around. If the possibility of war between those two kingdoms actually comes to a head, then…*  
 
 A thought of the distant kingdom higher in the North crossed her mind when she looked at the stars from the distant window.   
 
