@@ -483,45 +483,70 @@ It was not long before she got back in her room to formulate a loose plan. Befor
 <h3>750, 8th of Quadedre</h3>
 
 *Urgh, how do these guards not fall apart at this time…?*  
+
 Pendra let out a yawn while strolling out the castle’s back gates and gazing up at the early sunrise.   
+
 *What’s a man’s discipline to be to reach that stage, huh?*  
+
 Though he was not of the sort to rise early in the morning, today was another exception he held no say to refuse.   
+
 Outside the castle’s territory and onto the road of stone was a carriage, of which Pendra had not seen in years. Mixed in both designs of velvet black and steel guards over every vital area of the design, its presence was known to all who could truly be called Ashfolk.  
+
 *Forgot how fancy they made these types of carriages.*  
+
 A carriage, it was not.   
+
 *Once he gets in there, I won’t see him for a long time.*   
+
 A cage for the North’s wildest beasts, it was and is.  
+
 *This could be the last.*  
+
 He gave a saluting wave to Mercer when they exchanged eye contact.  
+
 “Ho there, Mercer\! Good mor–”  
+
 But the only response he gave back was a glare and a clicked tongue. The gesture alone incurred the nerves of the soldiers escorting him in the cage.    
+
 Pendra chuckled nervously, then sighed once the door closed.  
 *Ah, hell.*   
 “He won’t even look back?”  
 Pendra turned around to find Lily speaking from right behind him. Not far from her, the twins Gerwyn and Gehenna approached the scene.   
 “Ho there, Lily\! Ho, there, Gerwyn and Gehenna\! Good morning\!” Pendra summoned his cheer back with a saluting wave for all three of them.  
-	“Ho there, Pendra\!” said a now brightened Gehenna, who returned a saluting wave back at him.  
-	“...Hello.” said a still tired Gerwyn, who answered the salute with a partial wave.  
-	“No need to keep faking it, Penny; I can see your eyes darkening.” said an often uptight Lily, who kept her hands on her hips and unleashed a glare tinted with morning enervation.  
-	“Not as bad as that swamp all over your face, *princess.*”  
-	“What swamp? Unlike you, I don’t stay up late to fool around\!” Lily declared.  
-	“Unlike you, I don’t stay up late to practice my *Victor impression*.”  
-	“What does *he* have to do with this?”  
-	“Every time he raises his chin, you immediately raise your head. Every time he folds his arms, you fold them too. Gehenna, you know what I’m talking about?”  
-	“No, she doesn’t, you…you delusionwit\!” Lily exclaimed while pointing at him.  
-	“...Delusionwit? Come now, that’ll never catch on.” Pendra violently resisted the instinct to facepalm.  
+“Ho there, Pendra\!” said a now brightened Gehenna, who returned a saluting wave back at him.  
+“...Hello.” said a still tired Gerwyn, who answered the salute with a partial wave.  
+“No need to keep faking it, Penny; I can see your eyes darkening.” said an often uptight Lily, who kept her hands on her hips and unleashed a glare tinted with morning enervation.  
+“Not as bad as that swamp all over your face, *princess.*”  
+“What swamp? Unlike you, I don’t stay up late to fool around\!” Lily declared.  
+“Unlike you, I don’t stay up late to practice my *Victor impression*.”  
+“What does *he* have to do with this?”  
+“Every time he raises his chin, you immediately raise your head. Every time he folds his arms, you fold them too. Gehenna, you know what I’m talking about?”  
+“No, she doesn’t, you…you delusionwit\!” Lily exclaimed while pointing at him.  
+“...Delusionwit? Come now, that’ll never catch on.” Pendra violently resisted the instinct to facepalm.  
 “On the contrary…his observation’s astute.” Gehenna sheepishly interjected. “Your mimicry of him has been a yearly constant. It’s adorable.”  
+
 “Hey\!\!” The embarrassment flushed Lily’s face into a pure red.   
+
 “Enough of this, all of you.” called out a stern voice from behind them.  
+
 It was Victor, who had arrived with Nadis and Georg behind him. Gerwyn was the only one to step back and quickly redirect his focus to observing the carriage.  
+
 *Well, look who’s late to the punch this time.*  
+
 “Ho there, Georg, Nadis, and Victor\! Good morning\!” Pendra and Gehenna cheerfully shouted with a saluting wave.  
+
 Georg burst out a laugh and received them with a saluting wave of his own. “Ho there, you two\!”  
+
 Nadis silently waved back at them and nodded, which left Victor as the only one to disregard their salute. Stoic in the face, he stepped forward before the carriage and launched his breath into one loud command:  
+
 “The proceedings for the 4th successor’s exile shall now commence\!\!”  
+
 The horses, both twins the color of a pitch black night, had just been found and fastened to the carriage.   
+
 “So, uh, how come Mother and Father didn’t show up for this?” asked Pendra.  
+
 “Both of them are busy in a sudden meeting regarding our trade routes, so Victor and I were asked to take their place for this procedure.” replied Georg. “Not like it matters much, apparently; did not know this ceremony became so brief nowadays. Rushing these things isn’t good for your health; it sucks out the enjoyment of this fine morning.”  
+
 The carriage’s soundproofing proved to do its job well, for whatever briefing Mercer was going through inside could not be heard by the outside world. The rest of the Ashwrights could easily imagine what words were being exchanged without the need for a sound.  
 “The sooner *that one* is out of our lands, the better.” Victor declared back to Georg.  
 “Without question.” Gehenna muttered.  
@@ -552,11 +577,11 @@ Gehenna swiftly caught Lily before she could fall, then glared at him. “Pendra
 “I saw everything that happened there\! Maybe it does sound ridiculous, but I witnessed everything firsthand, there’s no denying that truth\!” Pendra let himself go off.  
 “Oh yeah\!?” Lily uncovered her ears and pounced right back in. “How do I know you didn’t make it all up? You definitely pulled out a few exaggerations to make it sound better than the truth\!”  
 “And sabotage Mercer with a cover-up story? I don’t have a motive for that\!”  
-	Lily pointed a decisive finger at him. “Not unless Gerwyn convinced you to spread that cover-up around\!”  
-	Pendra raised an irritated eyebrow whilst reviving the fake smile. “...And how, pray tell, would he be able to tell me that in the middle of getting beaten up?”  
-	“How do I know this deal wasn’t made long before the fight–”  
-	“Enough of this, both of you.” Gehenna firmly patted Lily’s head down and got between the both of them. “Lily, there is nothing we can say in the face of the truth. Pendra, no trace of a lie exists in your account, so I understand your frustration. But it is best we look on the bright side instead of stoking more bickers.”  
-	“What bright side? Mercer’s been sent to die, big sis\!” Lily shouted.  
+Lily pointed a decisive finger at him. “Not unless Gerwyn convinced you to spread that cover-up around\!”  
+Pendra raised an irritated eyebrow whilst reviving the fake smile. “...And how, pray tell, would he be able to tell me that in the middle of getting beaten up?”  
+“How do I know this deal wasn’t made long before the fight–”  
+“Enough of this, both of you.” Gehenna firmly patted Lily’s head down and got between the both of them. “Lily, there is nothing we can say in the face of the truth. Pendra, no trace of a lie exists in your account, so I understand your frustration. But it is best we look on the bright side instead of stoking more bickers.”  
+“What bright side? Mercer’s been sent to die, big sis\!” Lily shouted.  
 “...And?” Gehenna asked nonchalantly.   
 The two youngest siblings were taken aback. Even the few soldiers, practitioners of stoicism and involuntarily overhearing the ruckus, grew unnerved.  
 The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed the presence of us at all here. Not once was that mutt ever kind to either of you two; his bigger priority lied in vocal on playing his moronic game of…whatever one would call that constant drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
@@ -569,7 +594,7 @@ He stared back off into the road where the carriage had long left, apprehension 
 He had not planned on speaking any further, but it was too late to back out now.  
 “When Father told Mercer how long he’d be staying in the Highlands, he didn’t protest at all. In fact, he was gunning for this the whole time.”  
 Though this too, seemingly carried the sound of nonsense to her, Lily did not disprove it upon seeing the serious look on his face.  
-“Why, though? Surely he knows better than anyone how scary those Highlands are to stay in. A few weeks is manageable once you get the hang of it, but seven months is too much\!”  
+“Why, though? Surely he knows better than anyone how scary those Highlands are to stay in. A few weeks is manageable once you get the hang of it, but seven months is too much\!”
 “And that’s what I tried to tell him the other day in his cell\! But the bastard wasn’t having any of it, because of course he doesn’t. Father and Mother aren’t gonna budge on that, either.”  
 “Did you try to convince Father and– wait, no, that wouldn’t have worked either, right?” she corrected herself.  
 “Nope. They both looked like they had been meaning to do this to him a long time ago.”   
@@ -583,7 +608,7 @@ Thoughts still scattered, yesterday’s conversation nagged at Pendra’s mind. 
 The sun’s glare, now growing harsher, did not help his apprehension.  
 *What do you wish to carve into this world?*
 
-	By sunset, the carriage had traveled leagues out of Ashwright and into the increasing chills of the tundra and withered woods that preceded the Highlands. They had almost arrived at the border to the Highlands.   
+By sunset, the carriage had traveled leagues out of Ashwright and into the increasing chills of the tundra and withered woods that preceded the Highlands. They had almost arrived at the border to the Highlands.   
 Mercer’s only company were two soldiers asked to accompany him there; the carriage driver would hear none of what was uttered from outside. The soldiers were a blonde, short haired man young enough to fit the archetype of a new recruit, and another man whose lack of hairs was a mere tradeoff for experience written all over his face.  
 “Do you understand the conditions?” said the new recruit.  
 Mercer did not answer. His attention was outside the carriage’s window, a one way mirror unbeknownst to many.   
