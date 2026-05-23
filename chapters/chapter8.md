@@ -370,7 +370,7 @@ Vega nonchalantly replied, “Exactly what you think it means, She–”
 
 “Mhm\! And Nayateli was a queen who brought the humans over to help build his kingdom…or something like that? I know she went on a lot of adventures and had to reclaim her throne along the way, but that human Ardhari was talking so fast about her, I kind of lost track.”  
 
-*Yeah, sounds about right. Guess I’ll have to read up on this ‘Nayateli’ being myself, then.*  
+*Yeah, sounds about right.*  
 
 Creslende let go of Vega and rambled on, “I kept staring at the mask’s mouth while he talked, started craving spicy food for some reason, then looked at the skewers he was cooking and knew what to get for lunch\! And I’m so glad I did, they tasted so good\!”  
 
@@ -398,13 +398,7 @@ Disgruntled, yet compliant, Vega extended out her left arm. Without a second’s
 
 “Well, there’s still plenty to worry about right now, since I haven’t been there long. Let’s just say that stuff I mentioned about Ashwright and Lambda is going to be recurring for a while.” assured Shenael.   
 
-“When isn’t it a recurring issue, though?”  
-
-“Perhaps in a time the last generation remembered before we were born. It is still hard to say.” shrugged Vega.  
-
-“No kidding.” Shenael appended.  
-
-Finally, with a sharp breath of relief, Creslende gleefully said, “Alright, bandages are done, good as new\! Now then, we should take you back to Sage Icarr and Lady Marisael\!”  
+With a sharp breath of relief, Creslende gleefully said, “Alright, bandages are done, good as new\! Now then, we should take you back to Sage Icarr and Lady Marisael\!”  
 
 “Yes, the sun is setting, so we must go.” Vega got up from the rock and wasted no time hobbling back.  
 
@@ -596,13 +590,11 @@ With a gesture and a nod, she urged him to continue. And so Icarr did.
 
 “Sherman…he could not stand for serenity built upon such a wretched unison; the youth kept his mind set on patricide. Speaking of it now makes me recall that vivid *stare in his eyes* as he vowed it to every cell in his blood.  
 The point is this; his campaign was founded by reason, and not one of pure delusion, no. It was born from sharpened *hatred*. In all the years I have breathed in, I have never seen one hate anything like he and the Ashfolk do with the Lambda of today, and who could blame them for it? But now? The reasoning matters less as the weight of actions command the stage.  
-Hatred is a *wildfire*, Lady Shenael. A *diseased wildfire*. No matter how founded or justified it may be…no matter how well contained it may look in a cage, it consumes and devours all in its path; it stops at naught until all has reduced to dust. We of Xaede are but bystanders in the onslaught of two ambitious infernos, burning the brightest I’ve seen in all the years I’ve lived on this soil blessed by Erde Tierkreis. The time to choose which to douse draws closer with each day; to remain neutral as they burn the skies above and earth below…is no longer an option.”  
-
-*I’ve never heard him so sorrowful speaking of someone like this.*  
+Hatred is a *wildfire*, Lady Shenael. A *diseased wildfire*. No matter how founded or justified it may be…no matter how well contained it may look in a cage, it consumes and devours all in its path; it stops at naught until all has reduced to dust. We of Xaede are but bystanders in the onslaught of two ambitious infernos, burning the brightest I’ve seen in all the years I’ve lived on this soil blessed by Erde Tierkreis. To remain neutral as they burn the skies above and earth below…can only get us so far.”  
 
 Shenael did not dare comment on this grave lesson in history; to do so was to waste the air that grew heavier with each second.
 
-*If the King of Ashwright was strong enough to beat Sage Icarr, the Apostle of War, and leave him this conflicted decades later, then…*
+*If the King of Ashwright was strong enough to beat an Apostle of War like Sage Icarr and shake him like this, then…*
 
 “Well, such is a ruler’s creed.” Icarr attempted to relax himself with a long breath. “Discerning the least painful toxins to ingest is a skill required in any position of command. Ashwright may be the lesser poison, but it is a poison nonetheless. The Ashfolk are an odd lot; somehow, after years of a prosperous alliance between the North’s two strongest, they indulge in a mixed perception of us elvenkind."  
 
