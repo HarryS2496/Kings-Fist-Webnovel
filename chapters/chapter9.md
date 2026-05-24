@@ -813,13 +813,9 @@ It was only at this final question that he would stop. Though he did not turn ar
 The checkpoint’s soldiers wasted no time jeering and shouting at the exile. The pleasant memory had been interrupted by foul means yet again.  
 
 “You're the true filth to our liege\! A disgrace to what we stand for\!\!”  
-
 “We’ll drink to the Highlanders carving out your intestines first\!\!”  
-
 “What you did to Lieutenant Bruno will not go unpunished\!\!”  
-
 “Don’t lecture us about murder, you student-killing hypocrite\!\!”  
-
 “Die an uneventful death, arrogant wretch\!\!”  
 
 Mercer did not turn around; every roar fell on deaf ears.   
