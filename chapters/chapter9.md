@@ -679,6 +679,9 @@ The sun’s glare, now growing harsher, did not help his apprehension.
 
 *What do you wish to carve into this world?*
 
+<br>
+<br>
+
 By sunset, the carriage had traveled leagues out of Ashwright and into the increasing chills of the tundra and withered woods that preceded the Highlands. They had almost arrived at the border to the Highlands.   
 Mercer’s only company were two soldiers asked to accompany him there; the carriage driver would hear none of what was uttered from outside. The soldiers were a blonde, short haired man young enough to fit the archetype of a new recruit, and another man whose lack of hairs was a mere tradeoff for experience written all over his face.  
 
