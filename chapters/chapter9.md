@@ -448,11 +448,8 @@ Georg clicked his tongue. “Look, just take the *fucking* sword already. This t
 Convinced at last, Victor took the sword by the handle. Raising the blade’s point upwards and facing the dim moonlight, he took a deep breath and declared a vow only he and Georg could hear.  
 
 “I know not my worth in holding thy glaive, long ascended spirits of the past.   
-
 But I, Victor Ashwright, third successor and future ruler to my name, promise this to heaven and earth both.   
-
 The path I carve will ascend and finish what thou starteth.   
-
 Should I fail, may you strike me down at the doors of death with your greatest damnations.”   
 
 Wrøhsyr glowed brighter with every sentence to his vow, then dimmed once he sheathed it back in.  
