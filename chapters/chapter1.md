@@ -8,7 +8,7 @@ A frigid breeze passed through him as he opened and closed the rustic door. The 
 
 The balcony’s stone was soaked; the spring season had come to melt the snow away.   
 
-Yet there was still a frigid breeze.  
+Yet the winds chilled.  
 
 He put his right hand on the chest and took a deep breath.  
 
@@ -90,7 +90,7 @@ Tears silently fell as his left hand clutched the balcony rail.
 
 *I can’t even bring myself…to die.*  
 
-The only response the world gave him was another frigid breeze.  
+The only response the world gave him was another gust of the chills.  
 
 Silence.  
 
