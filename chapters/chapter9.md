@@ -509,20 +509,35 @@ He gave a saluting wave to Mercer when they exchanged eye contact.
 But the only response he gave back was a glare and a clicked tongue. The gesture alone incurred the nerves of the soldiers escorting him in the cage.    
 
 Pendra chuckled nervously, then sighed once the door closed.  
+
 *Ah, hell.*   
+
 “He won’t even look back?”  
+
 Pendra turned around to find Lily speaking from right behind him. Not far from her, the twins Gerwyn and Gehenna approached the scene.   
+
 “Ho there, Lily\! Ho, there, Gerwyn and Gehenna\! Good morning\!” Pendra summoned his cheer back with a saluting wave for all three of them.  
+
 “Ho there, Pendra\!” said a now brightened Gehenna, who returned a saluting wave back at him.  
+
 “...Hello.” said a still tired Gerwyn, who answered the salute with a partial wave.  
+
 “No need to keep faking it, Penny; I can see your eyes darkening.” said an often uptight Lily, who kept her hands on her hips and unleashed a glare tinted with morning enervation.  
+
 “Not as bad as that swamp all over your face, *princess.*”  
+
 “What swamp? Unlike you, I don’t stay up late to fool around\!” Lily declared.  
+
 “Unlike you, I don’t stay up late to practice my *Victor impression*.”  
+
 “What does *he* have to do with this?”  
+
 “Every time he raises his chin, you immediately raise your head. Every time he folds his arms, you fold them too. Gehenna, you know what I’m talking about?”  
+
 “No, she doesn’t, you…you delusionwit\!” Lily exclaimed while pointing at him.  
+
 “...Delusionwit? Come now, that’ll never catch on.” Pendra violently resisted the instinct to facepalm.  
+
 “On the contrary…his observation’s astute.” Gehenna sheepishly interjected. “Your mimicry of him has been a yearly constant. It’s adorable.”  
 
 “Hey\!\!” The embarrassment flushed Lily’s face into a pure red.   
@@ -548,139 +563,271 @@ The horses, both twins the color of a pitch black night, had just been found and
 “Both of them are busy in a sudden meeting regarding our trade routes, so Victor and I were asked to take their place for this procedure.” replied Georg. “Not like it matters much, apparently; did not know this ceremony became so brief nowadays. Rushing these things isn’t good for your health; it sucks out the enjoyment of this fine morning.”  
 
 The carriage’s soundproofing proved to do its job well, for whatever briefing Mercer was going through inside could not be heard by the outside world. The rest of the Ashwrights could easily imagine what words were being exchanged without the need for a sound.  
+
 “The sooner *that one* is out of our lands, the better.” Victor declared back to Georg.  
+
 “Without question.” Gehenna muttered.  
+
 No fanfare erupted from his sendoff. Pendra found the combination of such a major event mixed in with the air of a mundane morning made for a heavy weight on his stomach. By an unnamed instinct, he silently scooted closer to Gerwyn.   
+
 The Ashwrights all stared at the direction the carriage took towards the North. Though only ten minutes had passed in today’s ceremony, it felt as long as an hour to them all. Victor was the first to turn his back, then Georg was not long behind him.   
+
 “So, uh…” Pendra started.  
+
 Gerwyn was visibly surprised he was being addressed, but only Pendra was close enough to tell.   
+
 “What do you plan to do from here on out?”   
+
 The question bestowed unto the oft sickly brother a drop of determination.  
+
 “...Prepare. What else can be done?”  
+
 It was Pendra’s turn to be surprised as he watched Gerwyn swiftly walk back to the castle, and likely elsewhere. Oddly still, this prompted Nadis to follow suit.  
+
 *Seems throwing that punch inspired something in him. No idea what he’s planning, but ah well, it’s never been my place to intrude on that.*  
+
 “What’s his deal, anyway?” Lily loudly inquired once she was sure only Pendra and Gehenna were around to hear. “Something doesn’t sound right about that whole incident.”  
+
 “Lily…” Gehenna prepared to chastise her.  
+
 However, Pendra took the initiative. “What makes you say that, *princess*?”  
+
 “Think about it, Penny. The fight started because those two bumped shoulders by accident. In a big hallway. There’s no way that just happens by accident\! And I especially don’t believe the part where Gerwyn was just unaware with his face in a book.”  
+
 *Oh my fucking gods.*  
+
 “And where are you going with this theory, *your Majesty*?” Pendra attempted his fakest smile befitting royalty, a far cry from the heart wrapped around his sleeves.  
+
 “Just listen, Penny\! I think Gerwyn bumped into Mercer on purpose, aiming to provoke him into a fight\! He should have known what he was doing; there’s no way an actual human can lack the competence to not walk and read at the same time\!”  
+
 “Lily, quiet yourself\!” Gehenna hushed her down at once. “Whatever ‘theories’ you have, it is uncouth of our station to throw outlandish accusations for too many to hear. Stop using your outside voice.”   
+
 “But big sis–”  
+
 “Yeah, I’m in agreement with her there,” Pendra added before putting a hand on Lily’s shoulder. “‘Sides, there’s a little detail that goes against your ‘theory’.”  
+
 Lily would have normally slapped his hand away to step back. But this time, she let it off her shoulder gently. “Fine, then. What’s the detail in question?”  
+
 Pendra gestured her to listen closer and took a deep breath. After successfully letting her bring an ear in–  
+
 “I WAS THERE\!\!\!\!” he shouted with all his might.  
+
 “OWWW\!\!\!” she screamed, then staggered while covering her ears in a pained daze.  
+
 Gehenna swiftly caught Lily before she could fall, then glared at him. “Pendra…\!”   
+
 “I saw everything that happened there\! Maybe it does sound ridiculous, but I witnessed everything firsthand, there’s no denying that truth\!” Pendra let himself go off.  
+
 “Oh yeah\!?” Lily uncovered her ears and pounced right back in. “How do I know you didn’t make it all up? You definitely pulled out a few exaggerations to make it sound better than the truth\!”  
+
 “And sabotage Mercer with a cover-up story? I don’t have a motive for that\!”  
+
 Lily pointed a decisive finger at him. “Not unless Gerwyn convinced you to spread that cover-up around\!”  
+
 Pendra raised an irritated eyebrow whilst reviving the fake smile. “...And how, pray tell, would he be able to tell me that in the middle of getting beaten up?”  
+
 “How do I know this deal wasn’t made long before the fight–”  
+
 “Enough of this, both of you.” Gehenna firmly patted Lily’s head down and got between the both of them. “Lily, there is nothing we can say in the face of the truth. Pendra, no trace of a lie exists in your account, so I understand your frustration. But it is best we look on the bright side instead of stoking more bickers.”  
+
 “What bright side? Mercer’s been sent to die, big sis\!” Lily shouted.  
+
 “...And?” Gehenna asked nonchalantly.   
+
 The two youngest siblings were taken aback. Even the few soldiers, practitioners of stoicism and involuntarily overhearing the ruckus, grew unnerved.  
+
 The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed the presence of us at all here. Not once was that mutt ever kind to either of you two; his bigger priority lied in vocal on playing his moronic game of…whatever one would call that constant drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
+
 She turned towards the path leading back to the castle, musing as she walked. “Though I’ll admit, the fact that my brother Gerwyn punched him is a shocking thing indeed, if not above what was deserved.”   
+
 Soon after she waved and left, only Pendra and Lily remained.  
+
 He stared back off into the road where the carriage had long left, apprehension creeping into his soul.  
+
 *Was there nothing I could do to save him?*  
+
 “Uh, Penny? Are you okay?” She too, found herself in a similar unease.  
+
 “Ah, I’m fine, it’s just…well…”   
+
 He had not planned on speaking any further, but it was too late to back out now.  
+
 “When Father told Mercer how long he’d be staying in the Highlands, he didn’t protest at all. In fact, he was gunning for this the whole time.”  
+
 Though this too, seemingly carried the sound of nonsense to her, Lily did not disprove it upon seeing the serious look on his face.  
+
 “Why, though? Surely he knows better than anyone how scary those Highlands are to stay in. A few weeks is manageable once you get the hang of it, but seven months is too much\!”
+
 “And that’s what I tried to tell him the other day in his cell\! But the bastard wasn’t having any of it, because of course he doesn’t. Father and Mother aren’t gonna budge on that, either.”  
+
 “Did you try to convince Father and– wait, no, that wouldn’t have worked either, right?” she corrected herself.  
+
 “Nope. They both looked like they had been meaning to do this to him a long time ago.”   
+
 “Well, if all those fights he’s caused are anything to go by, then, it makes sense why Father, Mother, and big sis would. But…” Lily’s emotional struggle to keep her thoughts in line became more apparent as she rubbed her eyes with her hands. “Yeah, I didn’t like him at all either, but this? I just got back from the Highlands weeks ago; the blizzards there are never something I’d wish upon anyone\! So why is he just accepting it like that\!? It’s insane\!”  
+
 *“If someone could become a swordsman by swinging a sword at the air the right way for months on end, would this world really need knights?”*  
+
 Thoughts still scattered, yesterday’s conversation nagged at Pendra’s mind. He nodded, but said nothing as he stared beyond the road again.  
+
 “Anyways, I’m going back inside, and you should too. We can’t miss out on that rumored tuna special in town\!” Lily marched back to the castle with all the refined dignity she could still muster for the morning.  
+
 *“You’re not gonna carve a legend sticking around in this forsaken dump.”*  
+
 “Yeah, we’ve been here too long. I’ll come with\!” With a casual stride, he trailed alongside her.   
+
 *Mercer…where’s this suicide charge going?*   
+
 The sun’s glare, now growing harsher, did not help his apprehension.  
+
 *What do you wish to carve into this world?*
 
 By sunset, the carriage had traveled leagues out of Ashwright and into the increasing chills of the tundra and withered woods that preceded the Highlands. They had almost arrived at the border to the Highlands.   
 Mercer’s only company were two soldiers asked to accompany him there; the carriage driver would hear none of what was uttered from outside. The soldiers were a blonde, short haired man young enough to fit the archetype of a new recruit, and another man whose lack of hairs was a mere tradeoff for experience written all over his face.  
+
 “Do you understand the conditions?” said the new recruit.  
+
 Mercer did not answer. His attention was outside the carriage’s window, a one way mirror unbeknownst to many.   
+
 “Lord Mercer.” the experienced soldier declared. “Do you–”  
+
 “Yeah, yeah, I got the conditions already.” Mercer shut down the stoic soldier. “Seven months in those mountains; once I start up, I can't go back down to your post below; and I gotta make camp myself. That’s basic survival instructions, not some ceremony you’d need a long sermon for.”  
+
 “Yet you forget one line in the verse,” said the calm veteran.  
+
 “Gods, a verse, he says,” Mercer scoffed. “What, do you speak of the part where if I dare disobey or try to break free, the consequences will be dire? That’s the first thing a toddler learns about law as a construct. While we’re at it, remind me to tell the heavens that the tide goes in before it goes out.”  
+
 The new recruit silently glared at the captive, but the experienced soldier held him back gently. Through the silent message of a shaking head, he made sure to get across that the prince across the carriage from them was a lost cause.  
-In the rest of the ride, the punch he took from the cripple replayed itself over in his head.  
+
+For the rest of the ride, the punch he took from the cripple replayed itself over in his head.  
+
 *If even that wretch is able to draw my blood…*  
+
 The blood from his nose would not stop leaking and distorting his hand.  
+
 *There’s no use staying in this forsaken kingdom any longer.*  
+
 The precise moment the carriage stopped and the gate to the Highlands came into view was a burst of silent relief for both him and the guards. As the guards stepped out before he did, all three of them took in the upcoming peace that would follow, but none were in unison. When Mercer knelt after he jumped out, he silently picked up a handful of stone dust and soil while the two guards were looking forward, then pocketed it.  
+
 The checkpoint in front of the gate was less of a village and more a series of humble bases of wood. Two stone towers loomed, one on each side of the gate. The gate itself was a vast, caged sheet that, despite its old adage, still proved sturdy enough as one barrier between such harsh mountains and the rest of the world.  
+
 To Mercer’s right, there was a stone staircase leading down to a dungeon carved out entirely by hands of the Ashfolk. Though its pitch black darkness remained so far away, Mercer had seen enough of the depths below on both sides of the bars. In the silence, his memory picked up the roars and pleads–  
 *Like those dregs matter, idiot. Focus.*  
+
 Mercer put a hand to his face, still smeared in the blood from his delusion, and silently followed the guards into the oakwood cabin next to the stone tower on the left. The sign in front of the door said: “Reception.”  
+
 “We’ve returned with a new one; the fourth prince of Ashwright.” declared the experienced soldier.   
+
 “Ah, so he has finally arrived.” The receptionist was a young girl with brown hair in a ponytail and light Ashwright-grade armor of leather and steel. She greeted the three with a beaming smile and pulled out a paper from her desk. Here, have a seat and we’ll…”  
+
 Mercer shoved both of the guards to the side and startled her by closing the distance. “Yeah, yeah, you must be new here, I’ve done this already.” He snatched the papers and oakwood pen from her right hand. “‘First, you will spend an unspecified amount of days in our local dungeon while we pick our noses, getting your history together for no reason whatsoever. Then you will be taken to the Highlands where you are expected to survive and form your own lodgings to repent for your sins soaked in human blood. Please sign your name in these five places so we can inscribe into the records another guttersnipe to be fed to the bears above.’ That’s what you’re gonna regurgitate from this waste of tree fiber.” He mocked her formal tone while furiously scribbling multiple signatures into the contract’s pages.  
+
 The receptionist immediately dropped her smile and stood up to protest. “Hey–\!”  
+
 Mercer slammed the contract back onto the table. Before the other two guards could grab him, he dodged both with precision–\!  
+
 “What the–\!?” gasped the new recruit.   
+
 Mercer did not let him finish; he grabbed the new recruit by the collar, and threw him onto the desk with the receptionist\!   
+
 The experienced soldier tried to fully restrain him, but Mercer stomped straight down on his foot\!   
+
 He picked up the chair on his right, swung around clockwise, and slammed the soldier with it\! Though the soldier parried the chair in time with his sheathed blade, sheer force sent him to the wall on the left.  
+
 *The blood I live off of finally boils as it must.*  
+
 Before the three soldiers could get themselves back together, Mercer quickly walked over to a giant chest of steel on the far right end of the cabin and kicked it open. It contained the necessary starting provisions and tools for camping out in harsh snow in satchels neatly lined up.  
+
 *Aside from that bald one, those two definitely know nothing about killing.*  
+
 While the other two tried to get their bearings together, the experienced soldier in question got up and stepped forward to confront him. “So you claim to understand our rules, yet act upon this foolishness anyway. Do not make this harder for all of us, Lord–”  
+
 “I’m making your forsaken job *easier* by going there myself. So step out of the way.” Mercer kicked open another large chest and grabbed a long, bundled chain whip with a morning star. Feeling its heavy weight and deceptively reliable length in his left hand, it felt like a weapon Mercer’s bloodstained hands had waited to grasp for all the years he had drawn breath. The whip became loosely latched onto the belt, ready for later use.  
+
 The last of the soldier’s patience had burned out as he drew his sword. His steps were of a slow and steady hunter cornering another hunter.  
+
 *Can’t boost myself with immolation, it’ll burn this down with me in it. Then…*  
+
 With his right hand, he swung the satchel at the soldier, but let go of it early, feinting a swing and chucking it at the front desk\! The receptionist, who just got up to head into the fray, narrowly dodged it by parrying it with her light hammer. The soldier saw the feint coming and still swung an agile slash, but Mercer stepped back and got off easy with a light scratch. His response: a gift of stone dust for the soldier’s eyes\!   
+
 The soldier closed his eyes before the dust could hit, but by the time he could properly squint and step back, the prince had closed the distance off thanks to an instinctual prediction. With his right hand, he threw a hook while clenching the now unfastened morning star of the whip, hitting the soldier square in the face\!  
+
 The brutal blow made him drop his sword in a daze, but Mercer had no time to rest; he caught the sword and felt a small pang of nausea as his hand felt its hot handle. The new recruit had also recovered after being thrown to the desk, but before he could draw his sword, Mercer grabbed the hilt of the whip and let it fly with a heated flick, smashing into the receptionist’s stomach\! While she reeled back, the new recruit had finally recovered and was ready to head into the fray.  
+
 “Damn it…you–\!” The new recruit began to shout, but Mercer threw his sword straight ahead to silence him. Readied, he parried the blade out of the way and let it slam into a wall\! His resilience proved enough to shake off the aftershock, but not enough to react again–  
+
 **BOOM.**  
+
 The prisoner slammed the recruit’s face with another whip strike\! As he fell unconscious, the receptionist attempted to stand again, but too many fractures from her wound disbarred it.  
+
 Mercer took another satchel and began walking out the front door. As expected, he was greeted by multiple guards with their steel spears and swords pointed at him, each one level headed and ready to strike at the drop of a pebble. Though this expected checkmate kept him in place, he did not step back.  
+
 “If you all heard that, you know I don’t have the time for this.” His glare combed through all of them to find the leader in the back. “I’m talking to you, *ex-general*.”  
+
 “In all but name, the *ex* in that title is but the scratch of an ant.” A tall and stocky middle aged woman Mercer hated to recognize stepped forward. Her long locks of blonde hair starting to grey out, a face scarred by a long slash mark running down her right eye, frown as cold as the night on a new moon, and pitch black armor of steel was a sight none could forget upon one encounter. Other soldiers a fair distance from the confrontation gasped and gawked.  
+
 “G-General Thessein\!”   
+
 “It’s the general\!”  
+
 “F-finally\! She’ll save us from that wretch\!”  
+
 Her eyepatch this time was new, made of black leather with the insignia of a dragon’s maw at the center. “I take it the rebound to my old status never reached your ears, Lord Mercer Ashwright,” she said whilst folding her arms.  
+
 “Yeah, ‘cause I don’t care. Open that gate.”  
+
 “That’s no way to ask a favor, sonny boy.”  
+
 Mercer clicked his tongue. “Don’t make this any worse that what’s in the cabin behind me. Your men will be allowed to point every weapon stored her at me right here. Every single cell in my body will walk away from this kingdom of yours as all of you bastards wish for.”  
+
 “And we had a special cell all warmed up for your hide today.” General Thessein casually stated before glaring into his soul.   
+
 Her one eyed glare at its worst would cause the average person’s bladder and bowel control to collapse along with their haywire nerves. The fatalistic burns carved into Mercer’s soul kept him from deterrence. The staredown eventually silenced the entire camp, for every other soldier could feel its magnitude as equal to 3 days in a blood-soaked siege.  
+
 “Of course, if you’re also in the mood to see cheese in the human flesh, go ahead and skewer me. But instant execution is no repentance for my ‘crimes’; for something so merciful, I doubt your almighty *king* will forgive the name *Thessein Jo* a second time.”  
+
 Neither of them said anything for 5 minutes. Agitation crept up on the soldiers with their spears pointed.  
+
 Finally, she sighed. “Soldiers, escort him to the gate at once.”  
+
 All of the soldiers looked at her, agape with shock, but they did not question her orders. Bows and more spears pointed at Mercer as he was cautiously escorted to the gate, like a tiger being threatened back into its cage.   
+
 “Are you sure of this, General?” asked the experienced soldier who Mercer fought earlier. He had a makeshift cloth wrapped around his left cheek to stop the fresh bleeding.  
+
 “We got him where he needs to be, Lieutenant Bruno. Taming that arrogant child isn’t worth the trouble.” She walked off to the gate to see off the rabid tiger. “Now go get yourself fixed.”  
+
 “Yes, General.” Bruno bowed and was on his way.   
+
 When the caged gate opened for his departure, multiple bows and crossbows too, were at the ready.   
+
 *Finally.*  
+
 The Highlands, a series of some of the tallest mountains the North had to offer, loomed beyond his path. The spring season’s warmth could only do so much against the permanent chills that lay before the ascending road.  
+
 “One thing before you go, Lord Mercer\!” General Thessein called out to him. “I can see that roaring fire in your eyes hasn’t changed, and they look at those mountains as mere fuel\! So answer this; with those flames, what do you wish to carve into this world?”  
+
 It was only at this final question that he would stop. Though he did not turn around, he uttered a declaration loud enough for all to hear in the deafening silence.  
+
 “My name as the last of Ashwright’s bloodline. It’ll be carved by the skulls of you steelheaded murderers…and the rest of this world’s filth\!\!”  
+
 The checkpoint’s soldiers wasted no time jeering and shouting at the exile. The pleasant memory had been interrupted by foul means yet again.  
+
 “You're the true filth to our liege\! A disgrace to what we stand for\!\!”  
+
 “We’ll drink to the Highlanders carving out your intestines first\!\!”  
+
 “What you did to Lieutenant Bruno will not go unpunished\!\!”  
+
 “Don’t lecture us about murder, you student-killing hypocrite\!\!”  
+
 “Die an uneventful death, arrogant wretch\!\!”  
+
 Mercer did not turn around; every roar fell on deaf ears.   
+
 Though his declaration was no lie, what drove him up to the menacing highlands remained sound.   
+
 *I’ll get stronger…and carve the path you’ve always wished for.*  
+
 The forlorn woman with blonde hair of sunset gold was the light that moved his raging soul forward. It would not let her wistful prayers go to waste.   
+
 *So wait for me…Qaine.*
