@@ -375,7 +375,7 @@ The eldest folded his arms and frowned. “What do you mean, ‘what am I playin
 
 “A number still higher than zero; we've been over that bit, Victor. Also, it's in the blood of the Highlanders to hate everybody that isn't them, and those nomads they exiled haven't taken that well. Maybe if you went outside of here more, you'd see that.”   
 
-Victor clenched a fist, but kept his voice steady. “Now that you stand as a double agent, your loyalties to the crown are at risk. How am I to believe this information is curated to drop this demesne’s guard?”  
+Victor clenched a fist, but kept his voice steady. “Now that you stand as a double agent, your loyalties to the crown are at risk. How am I to believe this information is not curated to drop this demesne’s guard?”  
 
 Georg had taken a swig of water out of his flask while Victor talked, then quickly answered him once he finished speaking. “Because I’m aiming for Lambda's downfall here too, little brother. Maybe I don’t share the same hatred of their people as you and Father do, but they still have no place being carved in history’s finest legends. If I have to sit in another few of those Lambdaein counsels with that blasted Arrogator *whilst* babysitting those *shitstains* spawned from his balls *whilst* listening to another one of those *god-cocksucking* fanatics that dare to call themselves advisors, I’m going to shove my head into the nearest blast forge and never take it out.”  
 
