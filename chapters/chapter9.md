@@ -631,7 +631,7 @@ Pendra raised an irritated eyebrow whilst reviving the fake smile. “...And how
 
 The two youngest siblings were taken aback. Even the few soldiers, practitioners of stoicism and involuntarily overhearing the ruckus, grew unnerved.  
 
-The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed the presence of us at all here. Not once was that mutt ever kind to either of you two; his bigger priority lied in vocal on playing his moronic game of…whatever one would call that constant drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
+The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed the presence of us at all here. Not once was that mutt ever kind to either of you two; his bigger priority lied in being vocal on playing his moronic game of…whatever one would call that constant drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
 
 She turned towards the path leading back to the castle, musing as she walked. “Though I’ll admit, the fact that my brother Gerwyn punched him is a shocking thing indeed, if not above what was deserved.”   
 
