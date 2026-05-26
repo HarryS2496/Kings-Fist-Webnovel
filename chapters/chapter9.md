@@ -184,13 +184,11 @@ Pendra let go of the bar, but held firm. “Okay, sure. But no matter how confid
 
 Pendra shrugged. “Personally, I’d rather the first legend I carve be something cool and exciting. Y’know, the type that doesn’t involve picking unnecessary fights to guarantee an early grave.”  
 
-“Do it while I’m gone.”  
+“Do it while I’m gone.”    
 
-“Gone? Who’s gonna welcome you back here when those seven months are up, though?”  
+*Gone? Who’s gonna welcome you back here when those seven months are up, though? Well, I do still have three years left to finish at Katorus, but…eh, I’ll figure something out if the time calls for it.*  
 
-*Well, I do still have three years left to finish at Katorus, but…eh, I’ll figure something out if the time calls for it.*  
-
-“Come over here when that happens and you’ll be the one rotting on this old bed.” Mercer turned over to his left side, preferring to sleep with the wall in sight instead of his younger brother.  
+Mercer turned over to his left side, preferring to sleep with the wall in sight instead of his younger brother.  
 
 The unease sunk deeper into the air they inhaled.  
 
