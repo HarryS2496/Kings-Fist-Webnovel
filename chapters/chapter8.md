@@ -175,7 +175,7 @@ The violent monsoon descended upon the rampage at the worst of times.
 
 Though it washed away the filth and bloodstains that stretched from the deep glades and back out to a disturbed coast, it brought its own weight upon both the defenders of the forest and the pirates of the sea.   
 
-Though it cleansed the wounds of soldier and brigand alike, it enervated their flesh  
+Though it cleansed the wounds of soldier and brigand alike, it enervated their flesh.  
 
 Though it brought the world out of focus, Vega could see past the deluge’s mirage.  
 
