@@ -730,9 +730,9 @@ Mercer did not let him finish; he grabbed the new recruit by the collar, and thr
 
 The experienced soldier tried to fully restrain him, but Mercer stomped straight down on his foot\!   
 
-He picked up the chair on his right, swung around clockwise, and slammed the soldier with it\! Though the soldier parried the chair in time with his sheathed blade, sheer force sent him to the wall on the left.  
+He picked up the chair on his right, swung around clockwise, and slammed the soldier with it\! Though the soldier parried the chair in time with his sheathed blade, sheer force sent him to the wall.  
 
-*The blood I live off of finally boils as it must.*  
+*My blood finally boils.*  
 
 Before the three soldiers could get themselves back together, Mercer quickly walked over to a giant chest of steel on the far right end of the cabin and kicked it open. It contained the necessary starting provisions and tools for camping out in harsh snow in satchels neatly lined up.  
 
