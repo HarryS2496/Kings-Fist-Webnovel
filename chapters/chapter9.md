@@ -776,9 +776,9 @@ Her eyepatch this time was new, made of black leather with the insignia of a dra
 
 “That’s no way to ask a favor, sonny boy.”  
 
-Mercer clicked his tongue. “Don’t make this any worse that what’s in the cabin behind me. Your men will be allowed to point every weapon stored her at me right here. Every single cell in my body will walk away from this kingdom of yours as all of you bastards wish for.”  
+Mercer clicked his tongue. “Don’t make this any worse that what’s in the cabin behind me. Every drop of blood in my body will walk away from this kingdom of yours as all of you bastards wish for.”  
 
-“And we had a special cell all warmed up for your hide today.” General Thessein casually stated before glaring into his soul.   
+“And we had a special cell all warmed up for your hide today, too.” General Thessein casually stated before glaring into his soul.   
 
 Her one eyed glare at its worst would cause the average person’s bladder and bowel control to collapse along with their haywire nerves. The fatalistic burns carved into Mercer’s soul kept him from deterrence. The staredown eventually silenced the entire camp, for every other soldier could feel its magnitude as equal to 3 days in a blood-soaked siege.  
 
