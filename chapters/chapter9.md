@@ -808,7 +808,7 @@ It was only at this final question that he would stop. Though he did not turn ar
 
 “My name as the last of Ashwright’s bloodline. It’ll be carved by the skulls of you steelheaded murderers…and the rest of this world’s filth\!\!”  
 
-The checkpoint’s soldiers wasted no time jeering and shouting at the exile. The pleasant memory had been interrupted by foul means yet again.  
+The checkpoint’s soldiers wasted no time jeering and shouting at the exile.   
 
 “You're the true filth to our liege\! A disgrace to what we stand for\!\!”  
 “We’ll drink to the Highlanders carving out your intestines first\!\!”  
