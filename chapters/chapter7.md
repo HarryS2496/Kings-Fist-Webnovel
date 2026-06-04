@@ -111,11 +111,9 @@ She groggily rose up and rubbed her eyes, then stretched her arms as a yawn esca
 
 “Ugh…”  
 
-*Another dream about the past, huh? Those sure were the days…*  
+*Another dream about the past, huh? Those were the days…*  
 
 As her vision became clear, she looked to the window on the right side of her room, where the sun shone brightly.  
-
-*And they still feel like a week ago.*  
 
 She adjusted her underwear below her long, white shirt with one hand and quelled a small itch on her back with another. Yesterday's training routine still ached in her bones.  
 
@@ -163,7 +161,7 @@ When the Nexus entered her sight, she slowed down to a stop and brushed the back
 
 As she slowed her pace down and fixed her hair, the Nexus leered with every step.  
 
-*Mother’s right, there’s no need to fret here.*   
+*Mother’s right, there’s no need to fret.*   
 
 She took a deep breath once she opened the doors of marble and obsidian.  
 
@@ -172,8 +170,6 @@ She took a deep breath once she opened the doors of marble and obsidian.
 The halls were quiet, save for some maids running around to clean the halls.   
 
 Shenael made sure to wave at them as she usually did, holding them in the highest respect for their dedication to spotlessness. Though some recognized her later than others, they bowed in her presence.   
-
-*Maybe it is better I wake up earlier, this place feels more serene than usual.*  
 
 Upon stepping into the central elevator of the Nexus, a panel of runic flames burst in front of her. She instinctively tapped the flame depicting the lowest level.  
 
@@ -592,7 +588,7 @@ As gasps overcame the crowd, she slowly approached a shocked Desmeus like a pred
 
 He slashed downward with full force, blade roaring with a sinister red as it cleaved air.   
 
-But Shenael weaved to her right and swung her right leg into his side, excising the air out of his lungs\!   
+But Shenael weaved and swung her left leg into his side, excising the air out of his lungs\!   
 
 Before he could catch his breath, she clinched his head and–  
 
