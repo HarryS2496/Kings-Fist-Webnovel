@@ -119,9 +119,7 @@ The pushups finally stopped, but the prisoner’s focus did not divert. He wiped
 
 “Were you trying to instigate Father with that fight and all those times you kept throwing insults around? I know what you are, but–”  
 
-“Oh, *do you*?” Mercer finally responded.   
-
-He sauntered closer to Pendra, fastening two iron grips on the bars.  
+“Oh, *do you*?” Mercer finally responded. He threw the towel to the bed and sauntered closer to Pendra, fastening two iron grips on the bars.
 
 “Then answer this, *Penny*. Why do you *think* I resort to these lengths?” he asked, expression glowing in its pure lividity.  
 
@@ -139,7 +137,7 @@ Mercer mocked Pendra with a querulous, child-like tone. “‘*Maybe if you took
 
 “No, that’s not what I mean at all, and no, this doesn’t call for a break; you’re sending yourself to an early grave\!” Pendra reached the verge of exasperation. “I mean…the Highlands, brother\! Why pine for the Highlands? I’ve been there before on that trial of passage, and the whole test you gotta do to survive for two weeks is dangerous enough. You’re gonna be there for *seven* months\!”  
 
-“Yeah, so what?” Mercer let go of the bars and went back to get his towel and moisten it with water.  
+“Yeah, so what?” Mercer let go of the bars, grabbed his towel, and moistened it with water.  
 
 The lack of hesitation in his question startled Pendra.   
 
