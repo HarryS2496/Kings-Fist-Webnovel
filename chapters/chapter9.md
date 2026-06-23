@@ -58,7 +58,7 @@ They collected his head and other remains to be used for future materials.
 
 The hunter, however, could not cleanse the apprehension from his mind.  
 
-“Don’t hold too much in your breath, brother. Ever since we’ve come to this side of Axiom, I’ve found matches galore for this blade.”  
+“Don’t hold your breath, brother. Ever since we’ve come to this side of Axiom, I’ve found matches galore for this blade.”  
 
 Ardhari, now serious, looked back at the glades they had once traveled through, and nodded. He too, began to contemplate.  
 
@@ -71,7 +71,7 @@ The two were immediately back to walking; Ardhari’s voice rose higher as a dec
 <br>
 <br>
 
-*Ho there, dear audience. My name is Pendra Ashwright, seventh successor to my name; I’m gonna be a hero of legend someday. And currently…*  
+*Ho there, dear audience. My name is Pendra Ashwright, seventh successor to my name. And currently…*  
 
 “Right this way, Lord Pendra.” said one of the guards for the royal dungeon.  
 
@@ -117,7 +117,7 @@ Mercer continued to thoroughly push into the floor and back out of it, his voice
 
 The pushups finally stopped, but the prisoner’s focus did not divert. He wiped some sweat off with a towel and put his plain shirt back on.  
 
-“Were you trying to instigate Father with that fight and all those times you kept throwing insults around? I know what you are, but–”  
+“Were you trying to instigate Father with that fight? And all those insults you threw around? I know what you are, but–”  
 
 “Oh, *do you*?” Mercer finally responded. He threw the towel to the bed and sauntered closer to Pendra, fastening two iron grips on the bars.
 
