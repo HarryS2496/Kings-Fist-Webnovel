@@ -517,11 +517,10 @@ Not long after, both of them had a medium-sized porcelain mug of lemongrass tea 
 
 “If I may, we could start with how you and my father came to know him.” she suggested.  
 
-“That may be for the best. Yes, this was during the time where both Ashwright and us first tried to close the distant bond of centuries past.”  
+Icarr took a long sip of tea, prepared for the weight of his own words.
 
-*Oh, right, the two still hadn't passed the 100 year mark that time. Maybe it’s because I used to be around humans a lot back in Ashwright, but my kin are always older than what they look like.*  
-
-“Crideas and I first met him in our forests, during a sudden outbreak of behemoths as a party from Ashwright was sent to negotiate with us. Like migrating crows in a fearful daze, we rushed to obliterate the horde, praying no second would be too late to save humans from death.  
+“That may be for the best. Yes, this was during the time where both Ashwright and us first tried to close the distant bond of centuries past. Crideas and I first met him in our forests, during a sudden outbreak of behemoths. A party from Ashwright was sent to negotiate with us, and we feared the worst. 
+Like migrating crows in a fearful daze, we rushed to obliterate the horde, praying no second would be too late to save humans from death.  
 But…what we saw amidst the corpses of beasts, was a youth in royal clothing.   
 A shrewd one worthy of representing a nation for such a pivotal parley, but a youth, nonetheless.   
 A ruthless one with droves of behemoths behind him and his forces, but a youth nonetheless.   
