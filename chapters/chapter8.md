@@ -527,7 +527,7 @@ A ruthless one with droves of behemoths behind him and his forces, but a youth n
 A stoic one capable of respect without desperation for good graces, but a youth, nonetheless.  
 I, bloated with confidence as the strongest blade of Xaede, challenged him to a duel, despite Crideas’s pleas. ‘It is impossible for this human and a small legion to have caused such a vicious massacre\! If I prove his skills are a farce, perhaps an underhanded ploy will come to light as well\!’ is what I thought. And, well…”  
 
-“Somehow, you lost. My father mentioned something about that.” Shenael helped finish his thought.  
+“Somehow, you lost.” Shenael helped finish his thought.  
 
 Icarr drank a slow, large sip of his tea and straightened his long locks of raven black and charcoal grey hair. It seemed the consequences of his actions, though long ago, still knew when to sting at his soul.  
 
