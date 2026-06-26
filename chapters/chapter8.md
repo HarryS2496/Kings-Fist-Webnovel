@@ -531,7 +531,7 @@ I, bloated with confidence as the strongest blade of Xaede, challenged him to a 
 
 Icarr drank a slow, large sip of his tea and straightened his long locks of raven black and charcoal grey hair. It seemed the consequences of his actions, though long ago, still knew when to sting at his soul.  
 
-“Yes, I *lost*; twas not close. I could not dare to believe it was the *ashamascus* that shone through his steel blade and brought victory.  
+“Twas not somehow; I *lost*. I could not dare to believe it was the *ashamascus* that shone through his steel blade and brought victory.  
 
 The movements…  
 
