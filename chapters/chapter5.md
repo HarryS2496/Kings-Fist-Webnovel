@@ -197,17 +197,9 @@ Georg Ashwright had arrived on the field.
 
 Lily frantically weaved in and out of Nadis’s thrusts, desperate to find an opening.  
 
-Though the look she had inspired confidence, Nadis knew all too well how to break it.  
+Though the look she had inspired confidence, Nadis knew all too well how to break it. With the shaft of her spear and her back turned, she parried a blow Lily had charged flames and ice into. Nadis planted the back of her spear into Lily’s stomach, taking all the air out of her lungs and forcing her to reel back. The tip of the spear was then brought up to her neck.  
 
-*Arrogance must be broken before it becomes true confidence.*  
-
-With just the shaft of her spear and her back turned, she parried a blow Lily had charged magic into.  
-
-*So I’ll just do this\!*  
-
-Nadis planted the back of her spear into Lily’s stomach, taking all the air out of her lungs and forcing her to reel back. The tip of the spear was then brought up to her neck.  
-
-“Had this been a real fight, you’d die after such a reckless move.” Nadis commented, staring down at her little sister.  
+“Had this been a real fight, you’d die after that reckless move.” Nadis commented, staring down at her little sister.  
 
 “So what if I got careless once?” Lily said as she caught her breath. “We’re doing this again\! And this time, I won’t fold so easily\!”  
 
@@ -215,7 +207,7 @@ Nadis planted the back of her spear into Lily’s stomach, taking all the air ou
 
 “Huh\!?”  
 
-“The conditions we laid out counted for this fight that you just lost. If I recall correctly, I believe I said that if I won, you would never shackle another duel with conditions ever again.”  
+“The conditions we laid out counted for this fight that you lost. If I recall correctly, I believe I said that if I won, you would never shackle another duel with conditions ever again.”  
 
 “That’s not fair at all, though\! Neither of us specified that it would be for this fight\! These are the kinds of things you’d have to keep a score for\!”  
 
@@ -225,7 +217,7 @@ Though subtle, Nadis could feel her left eye twitch.
 
 “The battlefield isn’t fair either, and you’ll have to see it at some point. It’s not a place where things like ‘score’ belong.”  
 
-Lily clicked her tongue in annoyance. “Ahhh, forget it, let’s just continue from here\! I’m not walking away from these grounds without one victory against you\!”  
+Lily clicked her tongue in annoyance. “Ahhh, forget it, let’s continue from here\! I’m not walking away from these grounds without one victory against you\!”  
 
 *Don't bother with the last word, Nadis. Remain patient, you're looking at a mere student.*  
 
@@ -243,22 +235,22 @@ With little hesitation, the two immediately clashed again.
 
 “Have you been watching the spars from afar this whole time?” Gehenna asked.   
 
-“Oh, no, I just got here after a rather busy morning,” he answered. “It’s just rather easy to infer what’s gone down since I left.”  
+“Oh, no, I got here after a rather busy morning,” he answered. “It’s easy to infer what’s gone down since I left.”  
 
 “Well, if you can ‘infer’ it all so well, let’s hear it. What do you think you missed here, snake?” asked Mercer, irritated by Georg’s sudden arrival.  
 
 “Heh, it’s quite simple, really.” chuckled the eldest brother. “Victor exhausted himself to near death trying to teach all of you, so now Nadis is taking out her frustrations with him on Lily. Ah, and are those chain marks I see on the neck there? 
-The only way that could have happened is if you somehow let Mercer choke you out earlier, little brother.”  
+The only way that could have happened is if you let Mercer choke you out earlier, little brother.  
 
 “Not helping, Georg.” Victor grumbled as his face was still buried in a towel.  
 
-“And what do you mean by ‘let’? Our commander here gave it everything he had and still folded before me; you don’t just let someone choke you out of some twisted pity.” said Mercer.  
+“And what do you mean by ‘let’? Our commander here gave it everything he had and still folded before me; you don’t *let* someone choke you out of twisted pity.” said Mercer.  
 
-“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.” grinned Georg, unfazed in the face of the inferno he chose to ignite.  
+“Oh, I’m sure he gave it his all. I’ll need to see it in person about three extra times to truly believe you didn’t catch lightning in a bottle.” grinned Georg, unfazed in the face of the inferno he chose to ignite.  
 
 “Don’t test me, now.” growled Mercer. The inferno's source seethed and smoldered in his eyes.
 
-“And why not? I’m just curious to see if you can replicate a victory like that without needing to strike the audience as some sort of distraction.”  
+“And why not? I’m only curious to see if you can replicate a victory like that without needing to strike the audience as some sort of distraction.”  
 
 A lasting wave of shock overcame the other spectators except for Victor.
 
@@ -274,7 +266,7 @@ A lasting wave of shock overcame the other spectators except for Victor.
 
 “For three reasons, little brother. The first is because well, you don’t often see Victor the Great in a defeated state like this, but he’d be reeling from worse if Nadis went all out against him. The second is that slight swole that you keep feeling on your wrist there, Gehenna.”  
 
-Gehenna too was in disbelief, but kept some semblance of composure. “O-oh, astute observation there, Georg. But those are still rather wild guesses to make out of a situation, don’t you think? There’s still other possibilities to take into account, and a chance your guesses could be far off the mark on them, you know.”  
+Gehenna too was in disbelief, but kept some semblance of composure. “O-oh, astute observation there, Georg. But those are still wild guesses to make out of a situation, don’t you think? There’s still other possibilities to take into account, and a chance your guesses could be far off the mark on them, you know.”  
 
 “Not when considering the third reason; because you just told me the answer with your faces alone.” he replied coolly.  
 
@@ -328,7 +320,7 @@ Nadis released her grip and let the prodigy take her stance.
 
 Lily found herself overcome by agape shock once again.  
 
-“Hey, quit trying to predict everything I’m saying and just listen *already*\! Just because you’re older–”  
+“Hey, quit trying to predict everything I’m saying and listen *already*\! Just because you’re older–”  
 
 “Provide a less predictable conversation I’ve heard time and again, and I’ll consider it. If you cannot even do that much, then prepare yourself for this next round *already*.”  
 
@@ -358,7 +350,7 @@ The weariness had already begun to take its hold.
 
 “So you said this was far from the full extent of Nadis’s power, right? I take it that means you’ve fought alongside her, haven’t you?”   
 
-“Of course I have, though…it’s more like I’ve just watched her from the sidelines in the days we traveled together.”
+“Of course I have, though…it’s more like I’ve watched her from the sidelines in the days we traveled together.”
 
 <br>
 <br>
@@ -374,7 +366,7 @@ With a slowed pace and ragged breaths, Gerwyn felt his trance shaking.
 
 “Do not lie to our brethren here, Georg. You *did* fight alongside her.” interjected Victor. He had recovered somewhat from his exhaustion, but had yet to properly freshen up.  
 
-“Only in the brief time you hung around us, though. And the only reason for that was because you kept shouting in tears at me to ‘be a brother and protect your precious sister.’ Couldn’t just sit back and let the adorable little one bawl his eyes out that time.”  
+“Only in the brief time you hung around us, though. And the only reason for that was because you kept shouting in tears at me to ‘be a brother and protect your precious sister.’ Couldn’t sit back and let the adorable little one bawl his eyes out that time.”  
 
 “That’s because during that time–”
 
@@ -390,13 +382,13 @@ Each jab became heavier than the last.
 <br>
 <br>
 
-“Aww, he just called you adorable, Victor\!” Gehenna beamed with a smile mixed with smugness and amazement. “I wish I could have been around your age to see that in person, Lord Georg\!”   
+“Aww, he called you adorable, Victor\!” Gehenna beamed with a smile mixed with smugness and amazement. “I wish I could have been around your age to see that in person, Lord Georg\!”   
 
 “Y’know, I can already imagine it in some way now.” Pendra chimed in. “A young, little Victor, age twelve, trying to play the role of the protective knight for Nadis of all people. ‘Get your filthy hands away from my dear sister\! She’s still a maiden I have to protect\!’ Heheh, imagine that\!”  
 
 “I already can, and I hope it’s true\! Please tell us it’s the truth, Georg.” Gehenna pleaded.  
 
-“He was just a bit above your age at the time I’m currently thinking of, and the scowl *you* used to impersonate him was more furrowed, but everything else stands as fact.” confirmed Georg, amused at their intuition.  
+“He was a bit above your age at the time I’m currently thinking of, and the scowl *you* used to impersonate him was more furrowed, but everything else stands as fact.” confirmed Georg, amused at their intuition.  
 
 “Not another *word\!*” Victor declared.
 
@@ -412,11 +404,11 @@ He felt the weight in both the fists that struck at air and the legs that kept h
 <br>
 <br>
 
-“What, Victor? I’m just answering some questions here.” Georg threw his hands up.  
+“What, Victor? I’m only answering some questions here.” Georg threw his hands up.  
 
 “I refer to all of you here. *Not. Another. Word*.”  
 
-“No need to be so glum, Vic. We’re just calling you adorable here.” Pendra patted a hand on his shoulder in consolation. “And besides–”  
+“No need to be so glum, Vic. We’re calling you adorable here.” Pendra patted a hand on his shoulder in consolation. “And besides–”  
 
 “Do not try my patience, Pendra\! I said ‘not another word’\!”   
 
@@ -480,7 +472,7 @@ The silent air no longer surrendered to such enervated jabs.
 
 “Not to mention that you’re the only besides Gerwyn to be adept in magic from all seven elements.” Gehenna added.  
 
-“And unlike the cripple, he’s got an actual pool to make use of them.” Mercer chimed in. “The main reason he’s holding back against us is because he’s brown nosed our father so hard, he can just take the easy road out of this and look down on us while doing it. There’s some other cheap tricks he’s got up his sleeve for it, too.”  
+“And unlike the cripple, he’s got an actual pool to make use of them.” Mercer chimed in. “The main reason he’s holding back against us is because he’s brown nosed our father so hard, he can take the easy road out of this and look down on us while doing it. There’s some other cheap tricks he’s got up his sleeve for it, too.”  
 
 “I can confirm without a shadow of a doubt that two of you are on the right track and one of you was born with the name Mercer Ashwright\!” Georg clapped in mock applause.  
 
@@ -601,7 +593,7 @@ It was as if he had never slowed to a crawl at all.
 
 Perhaps the resolve lay in his blood, or perhaps the spirit of a renewed scholar.  
 
-*So of course this isn’t enough as it is\! Just keep jabbing\! Keep going\!*  
+*So of course this isn’t enough as it is\! Keep jabbing\! Keep going\!*  
 
 “1114\! 1115\! 1116\! 1117\!”  
 
@@ -648,7 +640,7 @@ And in another flash of flames and lightning, they had started another round.
 
 “Heh, that’s because–”  
 
-“His lazy ass just started paying other people to do the work for him.” Mercer interjected.  
+“His lazy ass started paying other people to do the work for him.” Mercer interjected.  
 
 “Correction: I used the connections and bonds at my disposal.” Georg shut down Mercer again. “Turns out that being someone people actually want to talk to goes a long way in having help for the road. Comes without the price of gold, too.”  
 
@@ -688,7 +680,7 @@ Pendra took a spoonful of the black gruel and beans from his bowl and steeled hi
 
 “Seven alive, Vic, what’s your–”  
 
-“Yeah, Penny, just eat your lunch and quit whining like a baby already\!” Lily suddenly chimed in.  
+“Yeah, Penny, eat your lunch and quit whining already\!” Lily suddenly chimed in.  
 
 “Really, now?” Pendra raised an annoyed eyebrow. “I can see you retching at the food too, you know.”  
 
@@ -717,7 +709,7 @@ Gerwyn had taken care of his situation for lunch long ago.
 
 “1345\! 1346\! 1347\! 1348\! 1349\!”  
 
-*Maybe next time, I’ll get more rations before coming here. Not like I can just go back and forth to the marketplace from here, after all.*
+*Maybe next time, I’ll get more rations before coming here. Not like I can go back and forth to the marketplace from here, after all.*
 
 <br>
 <br>
@@ -734,7 +726,7 @@ Gerwyn had taken care of his situation for lunch long ago.
 
 “Huh? What’s nostalgic about it?”  
 
-“We used to have this gruel back when it was just me, Nadis, and Victor training with the soldiers together. And it tasted just like it did before; bitter and full of protein.”  
+“We used to have this gruel back when it was me, Nadis, and Victor training with the soldiers together. And it tasted like it did before; bitter and full of protein.”  
 
 “And much like you, he used to be the one who’d complain about it.” added Nadis.  
 
@@ -764,7 +756,7 @@ Nadis gave a small nod in confirmation. Though Georg’s tone remained casual wh
 
 “The honey after gruel?”  
 
-“Yes, the honey after gruel, just like this bowl right here.” he said as he took another bite out of it. After smacking his lips and wincing slightly at the taste going down, he subtly gestured at Pendra.  
+“Yes, the honey after gruel, much like this bowl right here.” he said as he took another bite out of it. After smacking his lips and wincing slightly at the taste going down, he subtly gestured at Pendra.  
 
 “Listen well, little brother. The beauty of adventuring does not merely lie in seeing the best of this world. It comes from trudging through its worst to get to the best. It’s not about finding the sweetest honey there is to offer; it’s about eating whatever gruel you must to get there. The honey by itself merely tastes like honey, but when you take it in after bowls and heaps of this bile…”  
 
@@ -772,9 +764,9 @@ He chugged down the remaining gruel as if it were a bottle of wine, uncaring of 
 
 “...it tastes like the best damned thing you could ask for in Axiom.”  
 
-“It’s not just about trudging through the worst, mind you. There’s plenty of monotony one must cover as an adventurer.” added Nadis. She frowned as she looked at her bowl. “Bland monotony, much like this gruel. At this point, it wouldn’t kill them to add *some* flavor to this protein; even one condiment won’t sacrifice the benefits.”  
+“It’s not only about trudging through the worst, mind you. There’s plenty of monotony one must cover as an adventurer.” added Nadis. She frowned as she looked at her bowl. “Bland monotony, much like this gruel. At this point, it wouldn’t kill them to add *some* flavor to this protein; even one condiment won’t sacrifice the benefits.”  
 
-“Right\!? Even just a tinge of actual honey or pepper would do.” Georg added.  
+“Right\!? Even a tinge of actual honey or pepper would do.” Georg added.  
 
 “Gods, do not encourage him, you two.” groaned Victor.  
 
@@ -794,7 +786,7 @@ Her venomous glare shut him down immediately, so he sighed.
 <br>
 <br>
 
-“Now tread carefully here, little brother. This is also the look she tends to give when you mention to her one of those titles I just told you about.” Georg subtly pointed at her.  
+“Now tread carefully here, little brother. This is also the look she tends to give when you mention to her one of those titles I told you about.” Georg subtly pointed at her.  
 
 Gehenna and Pendra both felt goosebumps stand on end at the open provocation.  
 
@@ -814,7 +806,7 @@ The two spectators then let out a sigh of relief.
 
 Lily, however, was flabbergasted yet again, and it wasn’t just from the title.  
 
-“Yeah, I guess when you feel that good about yourself, being called ‘That-cobalt-bitch-with-the-spear’ starts to feel like a badge of honor in itself.” Mercer grumbled as he stabbed a spoon into his nearly finished bowl of gruel.  
+“Yeah, I guess when you're that high on your horse, being called ‘That-cobalt-bitch-with-the-spear’ starts to feel like a badge of honor in itself.” Mercer grumbled as he stabbed a spoon into his nearly finished bowl of gruel.  
 
 Gehenna’s eyes widened as she turned to Mercer. “You *gutterheaded mongrel*, do not–”  
 
@@ -858,11 +850,11 @@ After yet another day of spars and gruel, the sun had finally set, and everyone 
 
 Georg had left half an hour ago to attend ‘important business with a strategist’, yet his words still rang in Mercer’s head.  
 
-*“I’ll need to see it in person about three extra times to truly believe you didn’t just catch lightning in a bottle.”*  
+*“I’ll need to see it in person about three extra times to truly believe you didn’t catch lightning in a bottle.”*  
 
 “Damn it…” Mercer muttered.  
 
-He had just ended the day off on a victory against a now exhausted Lily, much to her chagrin. Concerned only with his remaining strength, he sauntered off to the benches to recover, and looked up at the sky.  
+He had ended the day off on a victory against a now exhausted Lily, much to her chagrin. Concerned only with his remaining strength, he sauntered off to the benches to recover, and looked up at the sky.  
 
 *The sun's going down, huh? Still reminds me a lot of…her.*  
 
@@ -878,7 +870,7 @@ The wretched voices of his brethren in the distance dissipated it just as quickl
 
 “Why, many thanks to you both. Although you’ve run yourself far too ragged for your own good, Lily. Get all the rest you need while you still can, and we’ll let the others fight in the morning, alright? I wouldn’t want to make your current injuries any worse.”  
 
-“I can definitely keep going in the morning, but you’re right\! I’ll do just that\!” She then turned around and began shouting at the benches. “You hear that, Mercer\!? You better be ready, come tomorrow, because once I get my strength back up to full, you won’t get so lucky like you did today\!\!”  
+“I can definitely keep going in the morning, but you’re right\! I’ll do that\!” She then turned around and began shouting at the benches. “You hear that, Mercer\!? You better be ready, come tomorrow, because once I get my strength back up to full, you won’t get so lucky like you did today\!\!”  
 
 *One of these days, I’m gonna make that little shit regret being born into this world.*  
 
@@ -902,19 +894,19 @@ The two had known each other well enough for less biting conversations, but Merc
 
 “Hey, c’mon, I get you’ve got your reservations against both of them, but you also can’t choose your family, y’know?” Pendra sighed out of concern.   
 
-*What I said about Victor deteriorating is also happening with me. Loathe as I am to admit it…that bitch wasn’t wrong.*  
+*That bitch wasn’t entirely wrong, and that's a problem.*  
 
 “Why should I bother getting along with a stubborn fool and an arrogant brat I never asked to be related to? There’s absolutely no hope of that, and I’d rather not pretend otherwise.”  
 
-*I used to be better at Katorus. Here, it’s somehow a struggle to replicate that strength.*  
+*I used to be better at Katorus.*  
 
-“There *is hope* if you try hard enough. Look, Mercer, I know you’ve got chances for people to respect you for who you are. You’ve got more to you than just a foul temper, and I’ve seen it firsthand myself\! But you can’t keep letting that anger squander your chances like this.”  
+“There *is hope* if you try hard enough. Look, Mercer, I’ve seen it firsthand myself you’ve got more to you than a foul temper\! But you can’t keep letting it squander your chances like this.”  
 
 *And none of those people are here. No one’s going to help me sharpen my edge the way it should be. I need to get out of this damned kingdom, but…*  
 
 “You should know that I’m in the core of my sanity when I do what it is that needs to be done.” Mercer glared back at Pendra.  
 
-*How the hell do I do that without Victor or some other general breathing down my neck? I need access to a better ground for training myself, but what do I do to get there?*  
+*How the hell do I do that without Victor or someone else breathing down my neck? I need access to a better ground for training, but what do I do to get there?*  
 
 “That doesn’t make it better\! Listen, all you have to do is…”  
 
@@ -924,7 +916,7 @@ Pendra trailed off, for he noticed someone else walking on the opposite end of t
 
 Sure enough, the cripple had returned to the castle, as ragged as he did yesterday.  
 
-He had immersed himself in yet another unrecognized book as he walked on the opposite side of the hall, likely unaware he was not alone.  
+He had immersed himself in yet another unrecognized book while walking on the opposite side of the hall, likely unaware he was not alone.  
 
 At first, Mercer went with the instinct to ignore him, but an opportunity suddenly clicked.  
 
