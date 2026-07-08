@@ -318,13 +318,11 @@ Nadis released her grip and let the prodigy take her stance.
 
 “For the human body’s important vitals, then overwhelming them once there’s little they can do anymore. Do you really think I’d forget word of mouth such as that either?” Nadis frowned.  
 
-Lily found herself overcome by agape shock once again.  
-
-“Hey, quit trying to predict everything I’m saying and listen *already*\! Just because you’re older–”  
+The flames of Lily's indignation rose higher. “Hey, quit trying to predict everything I’m saying and listen *already*\! Just because you’re older–”  
 
 “Provide a less predictable conversation I’ve heard time and again, and I’ll consider it. If you cannot even do that much, then prepare yourself for this next round *already*.”  
 
-“But it’s been years since you last came home, right? I just think it’s important to remind you of these things so you don’t forget where–.”  
+“But it’s been years since you last came home, right? I think it’s important to remind you of these things so you don’t forget where–.”  
 
 “I’ve got far more concerns above these ‘important things’ you and Victor want me to care about so badly, *kid*.” Nadis felt her patience wavering, and it wasn’t from the adrenaline that lingered in the sparks she emanated. “There’s far more to our father’s blade than what you imitate and hear in the legends.”  
 
