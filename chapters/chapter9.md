@@ -10,7 +10,7 @@ Though Ardhari was happily basking in the sun as they walked, Ramanari could onl
 
 “Hm? Not like you to doubt her.”  
 
-“It is not her I doubt, but the circumstances instead.”   
+“It is not her I doubt, but the circumstances.”   
 
 “If this is about the voyage, you still don’t get what she can do. She likes the sea’s waters as she likes her men.”  
 
@@ -22,13 +22,13 @@ Though Ardhari was happily basking in the sun as they walked, Ramanari could onl
 
 “Yes, the whispers also told of the bloody skirmishes between those pirates and Xaede’s army. Dangerous at the time, but now? They can do naught but lick their own wounds. Thus, we hurry on this road and make it to Crustadolh while they do.”  
 
-“Ardh, one of the Xaedean princesses nearly lost her life, along with an entire squadron of those elven knights. We’ve seen their weapons. We’ve seen firsthand from Princess Shenael how their royalty fights. If even they would struggle against these rogues, then…” Unwilling to commit to cynicism, Ramanari dared not finish the sentence.  
+“Ardh, you and I heard about one of the Xaedean princesses and her squadron on the brink of death. We’ve seen their weapons and how their royalty fights. If even they struggled against those rogues, then…” Unwilling to commit to cynicism, Ramanari dared not finish the sentence.  
 
 “Rama. We’ve heard they’re in too many places at once; these brigands are spread thin. And it’s not like they can just assemble members back at the seas or find new recruits in a flash. True pirates carry too much vim to dark join under the banner of one whose name in creative terms stands equal to rat shit.”  
 
 “You’re…especially confident in Miss Loka and I.” Ramanari was unsure how to feel about the extra bravado Ardhari sharpened himself with.   
 
-“I mean, I’d have to be\! Otherwise, ARKH would be 6 leagues in a ditch, and I’d die a beggar\!” Ardhari shouted.  
+“I mean, yeah\! If not for that, ARKH would be 6 leagues in a ditch, and I’d die a beggar\!” Ardhari shouted.  
 
 Ramanari picked up a low growl far behind them and immediately gripped his scimitar machete. Its presence emanated a dark gleam at the tightening of his grip, as if it were an extension of his arm.  
 
@@ -253,9 +253,9 @@ Cen flipped another two pages in her notepad. “Yes, and it was also one of sev
 
 “Though he gave the information, it was under confidentiality. Only Master Zetz knows the origins of the books, and though I wish I could, a vow was ensured not to divulge that information. My sincerest apologies, Lord Gerwyn, but this is the most I can tell you.” Cen was familiar enough to figuratively read his mind.  
 
-*Then Georg…he knows the implications of this book better than I do. But Archive Master Zetz Niall? I know little of him too, but was he close with Georg this whole time?*   
+*Then Georg…he knows the implications of this book better than I do. But Archive Master Zetz Niall? I know little of him too, but were those two close this whole time*   
 
-“No worries, I do.” answered Gerwyn. “But what of the other books he sent?”  
+“No worries, I...understand.” answered Gerwyn. “But what of the other books he sent?”  
 
 “I could bring you a list for those, but most of them are in Master Zetz’s possession, whilst others were relegated to Floor 0.”  
 
@@ -339,6 +339,7 @@ Victor finished polishing the blade, becoming contemplative.
 “Everyone’s got a reason to fight. Would you have preferred him to sit there and take it?”  
 
 “Of course not. But it would have been preferable for him to not get involved in the first place. If the wind catches him fighting again, some will begin to think of him a warrior like the rest of us Ashwrights, and he’ll be forced to become one again.”  
+
 “...And?”  
 
 “*And* he will be pushed to life-threatening exhaustion; do you not understand his condition? We cannot afford to have him on the brink of death when Zantche still remains an open option.” Victor sheathed the polished greatsword and put it back up on the wall.  
