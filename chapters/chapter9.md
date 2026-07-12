@@ -382,35 +382,35 @@ Such tricks of the tongue would have paralyzed any other, but Victor held firm i
 
 Curious, Victor scowled. “...No, let's. If you speak of how the Xaedeans worship Zaiklonael of the Wind and Erde Tierkreis of the Earth through more natural means instead, then I fail to see how that's enough for prejudice.”  
 
-Georg inhaled a long breath and chuckled. “Ohh, you have no idea how much more than enough it is, little brother. Mention Xaede elves around enough Lambdaeins, and one of them’s guaranteed to go red-eyed, frothing at the mouth ranting about their ‘unbalanced worship’ or ‘bizarre contraptions’ or ‘connections to The Devil with their knife ears’ or what have you. Honestly, I don't get it either, it's one of those things you'd have to see in person to believe.”  
+Georg inhaled a long breath and chuckled. “Ohh, you have no idea how much more than enough it is, little brother. Mention Xaedeans around enough Lambdaeins, and one of the older ones is bound to go red-eyed, frothing at the mouth ranting about their ‘unbalanced worship’ or ‘bizarre contraptions’ or ‘connections to The Devil with their knife ears’ or what have you. Honestly, I don't get it either, it's one of those things you'd have to see in person to believe.”  
 
 “But King Hans bears no devout will for The Septiment.”   
 
-“Most of his other counsel does, though. The majority wins out, and so does the worship of the rulers before him.”  
+“Most of his other counsel does, though. And so did the last ten or so kings of Lambda. Majority rules.”  
 
 “...A fair point, brother, but the statement still stands. Xaede is not coming back to us. At best, they’ll stay out of our way, and at worst, they’ll interfere as some sort of ‘third party.’”  
 
-“Not if you get *them* roped into an arranged marriage instead. Hmm, if I recall, Gerwyn was once close with a certain princess of the strongest clan there, the Lunendras. Speaking from personal experience, few things are better than a fair deal with their forest with a side of some good old elf se–”  
+“Not if you get *them* roped into an arranged marriage instead. If I recall, Gerwyn was once close with a certain princess of the strongest clan there, the Lunendras. Speaking from personal experience, few things are better than a fair deal with their forest with a side of some good old elf se–”  
 
 “Don’t. You. *Dare.*” Victor gritted his teeth, barely on the cusp of fury.  
 
-Georg stepped back with his hands up. “Yeesh, take a hard sentence for once, little brother. What’s the problem?”  
+Georg stepped back with his hands up. “Take a hard sentence for once, little brother. What’s the problem?”  
 
 Victor calmed himself with an iron clenching of a fist. “That ‘certain princess’ almost put his life in mortal peril. To bring them back together would be tantamount to ensuring his death. It’s too great of a risk.”  
 
-“...But throwing him into Zantche, where there’s more Lambdaeins on the side than elves, isn’t?”   
+“...But throwing him into Zantche, where there’s more Lambdaeins than elves, isn’t?”   
 
 Victor let the question hang in the air so he could regain his composure, then went back to sharpening his blades. “The first princess, Qaine, carries a proper reputation backed by kindness and intellect. All Gerwyn needs to do is play the part of a good spouse to her.”  
 
-Georg shrugged in resignation. “There’s plenty to disagree with on your plan, but it’s a little too late in the night to be running circles. Executing this plan assumes Father and Mother will hear you out beforehand. Give it about…” Georg pondered for roughly 5 seconds. “Three weeks. Wait about three weeks, then tell them once they’re calm.”  
+Georg shrugged in resignation. “There’s plenty to disagree with on your 'plan', but it’s a little too late in the night to be running circles. Of course, it all assumes Father and Mother will hear you out beforehand. Give it about…” Georg pondered for roughly 5 seconds. “Three weeks. Wait about three weeks, then tell them once they’re calm.”  
 
 Victor had finished whetting the blade and sheathed it back in time to look directly at the eldest brother. “So the *rest of this month*? Georg, time is of the essence with–”  
 
-“And thanks to your *fuckup* earlier, you’ll now have to use it for other things before they can trust your judgement again.” His voice sharpened.  
+The eldest glared, voice sharpened. “And thanks to your fuckup earlier, you’ll now have to use it for other things before they can trust your judgement again.”  
 
 “...Apologies. You are right.” Victor lowered himself, forlorn.  
 
-Georg closed his eyes again and brightened back up. “Ah, come now, don’t give that look, it’s nothing to wallow on. More importantly, here’s a belated birthday gift for you.” He began to unwrap the object wrapped in cloth.  
+“Ah, come now, don’t give that look, it’s nothing to wallow on.” Georg quickly brightened up. “More importantly, here’s a belated birthday gift for you.” He began to unwrap the object wrapped in cloth.  
 
 Victor, suspicious, furrowed his brow. “Ashwright celebrates no birthdays. That occasion is reserved for the Festival of the Northern Gradiance.”  
 
@@ -430,7 +430,7 @@ For the first time in a while, Victor was absolutely flabbergasted. “*W-w-w-wh
 
 “Have you forgotten how your lover, Ida, kept this close at her side\!? To use it so casually would be a disrespect to not only her wishes, but those of her elven brethren\! Must you force me to commit something so sinful\!?”  
 
-“Well, I can’t confirm that, since she’s dead and all. But I know she would have preferred to see it used than collect dust. And besides, a future king and commander needs at least one blade befitting his station. Where’s the sin in that?”  
+“Well, she’s long dead, so I can't confirm that. But she likely would have preferred to see it used than collect dust. A future king and commander needs at least one blade befitting his station. Where’s the sin in that?”  
 
 “Georg…whatever *high path* she chose to climb…it’s beyond–”  
 
@@ -480,11 +480,9 @@ Pendra let out a yawn while strolling out the castle’s back gates and gazing u
 
 Though he was not of the sort to rise early in the morning, today was another exception he held no say to refuse.   
 
-Outside the castle’s territory and onto the road of stone was a carriage, of which Pendra had not seen in years. Mixed in both designs of velvet black and steel guards over every vital area of the design, its presence was known to all who could truly be called Ashfolk.  
+Outside the castle’s territory and onto the road of stone was a 'carriage', of which Pendra had not seen in years. Mixed in both designs of velvet black and steel guards over every vital area of the design, its presence was known to all who could truly be called Ashfolk.   
 
-*Forgot how fancy they made these types of carriages.*  
-
-A carriage, it was not.   
+A carriage, it was not. 
 
 *Once he gets in there, I won’t see him for a long time.*   
 
@@ -522,9 +520,9 @@ Pendra turned around to find Lily speaking from right behind him. Not far from h
 
 “What does *he* have to do with this?”  
 
-“Every time he raises his chin, you immediately raise your head. Every time he folds his arms, you fold them too. Gehenna, you know what I’m talking about?”  
+“He raises his chin, you raise your head. He folds his arms, you fold them too. Gehenna, you know what I’m talking about?”  
 
-“No, she doesn’t, you…you delusionwit\!” Lily exclaimed while pointing at him.  
+“No, she doesn’t, you…you *delusionwit\!*” Lily exclaimed while pointing at him.  
 
 “...Delusionwit? Come now, that’ll never catch on.” Pendra violently resisted the instinct to facepalm.  
 
@@ -550,11 +548,17 @@ The horses, both twins the color of a pitch black night, had just been found and
 
 “So, uh, how come Mother and Father didn’t show up for this?” asked Pendra.  
 
-“Both of them are busy in a sudden meeting regarding our trade routes, so Victor and I were asked to take their place for this procedure.” replied Georg. “Not like it matters much, apparently; did not know this ceremony became so brief nowadays. Rushing these things isn’t good for your health; it sucks out the enjoyment of this fine morning.”  
+“Both of them are busy in a sudden meeting regarding our trade routes, so Victor and I were asked to take their place for this procedure.” replied Georg. “Not like it matters much; it's sad this ceremony became brief. Rushing an execution's no good for the health.”
+
+Nadis folded her arms. "Neither is a long winded means to whisk a prisoner off."
+
+"Agree to disagree on that one, *little sister.*"
+
+"Drink piss, Georg."
 
 The carriage’s soundproofing proved to do its job well, for whatever briefing Mercer was going through inside could not be heard by the outside world. The rest of the Ashwrights could easily imagine what words were being exchanged without the need for a sound.  
 
-“The sooner *that one* is out of our lands, the better.” Victor declared back to Georg.  
+“The sooner *that one* is out of our lands, the better.” Victor declared.  
 
 “Without question.” Gehenna muttered.  
 
@@ -582,13 +586,11 @@ It was Pendra’s turn to be surprised as he watched Gerwyn swiftly walk back to
 
 However, Pendra took the initiative. “What makes you say that, *princess*?”  
 
-“Think about it, Penny. The fight started because those two bumped shoulders by accident. In a big hallway. There’s no way that just happens by accident\! And I especially don’t believe the part where Gerwyn was just unaware with his face in a book.”  
-
-*Oh my fucking gods.*  
+“Think, Penny. The fight started because those two bumped shoulders by accident. In a big hallway. There’s no way that happens by accident\! And I especially don’t believe the part where Gerwyn was unaware with his face in a book.” 
 
 “And where are you going with this theory, *your Majesty*?” Pendra attempted his fakest smile befitting royalty, a far cry from the heart wrapped around his sleeves.  
 
-“Just listen, Penny\! I think Gerwyn bumped into Mercer on purpose, aiming to provoke him into a fight\! He should have known what he was doing; there’s no way an actual human can lack the competence to not walk and read at the same time\!”  
+“*Listen to me\!* I think Gerwyn bumped into Mercer on purpose, aiming to provoke him into a fight\! He should have known what he was doing; there’s no way an actual human can lack the competence to not walk and read at the same time\!”  
 
 “Lily, quiet yourself\!” Gehenna hushed her down at once. “Whatever ‘theories’ you have, it is uncouth of our station to throw outlandish accusations for too many to hear. Stop using your outside voice.”   
 
@@ -596,7 +598,7 @@ However, Pendra took the initiative. “What makes you say that, *princess*?”
 
 “Yeah, I’m in agreement with her there,” Pendra added before putting a hand on Lily’s shoulder. “‘Sides, there’s a little detail that goes against your ‘theory’.”  
 
-Lily would have normally slapped his hand away to step back. But this time, she let it off her shoulder gently. “Fine, then. What’s the detail in question?”  
+Lily would have normally slapped his hand away to step back. But this time, she let it off her shoulder gently. “Fine. What is it?”  
 
 Pendra gestured her to listen closer and took a deep breath. After successfully letting her bring an ear in–  
 
@@ -604,7 +606,7 @@ Pendra gestured her to listen closer and took a deep breath. After successfully 
 
 “OWWW\!\!\!” she screamed, then staggered while covering her ears in a pained daze.  
 
-Gehenna swiftly caught Lily before she could fall, then glared at him. “Pendra…\!”   
+Gehenna swiftly caught Lily before she could fall, then glared at him. “Pendra…\!\!”   
 
 “I saw everything that happened there\! Maybe it does sound ridiculous, but I witnessed everything firsthand, there’s no denying that truth\!” Pendra let himself go off.  
 
@@ -622,13 +624,13 @@ Pendra raised an irritated eyebrow whilst reviving the fake smile. “...And how
 
 “What bright side? Mercer’s been sent to die, big sis\!” Lily shouted.  
 
-“...And?” Gehenna asked nonchalantly.   
+“…And?” Gehenna asked nonchalantly.   
 
 The two youngest siblings were taken aback. Even the few soldiers, practitioners of stoicism and involuntarily overhearing the ruckus, grew unnerved.  
 
-The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed the presence of us at all here. Not once was that mutt ever kind to either of you two; his bigger priority lied in being vocal on playing his moronic game of…whatever one would call that constant drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
+The perplexity in the still air prompted her to double down. “Oh come, now, it’s not like he enjoyed a second of our time; not once was that mutt ever kind to either of you two. His bigger priority lied in…whatever one would call that moronic drivel of anger that could loosely be equated to words. Thus, he won a moronic prize to exile.”  
 
-She turned towards the path leading back to the castle, musing as she walked. “Though I’ll admit, the fact that my brother Gerwyn punched him is a shocking thing indeed, if not above what was deserved.”   
+She turned towards the path leading back to the castle, musing as she walked. “Though I’ll admit, the fact that my brother Gerwyn punched him is a shocking thing indeed, if not above what was deserved…”   
 
 Soon after she waved and left, only Pendra and Lily remained.  
 
@@ -652,19 +654,19 @@ Though this too, seemingly carried the sound of nonsense to her, Lily did not di
 
 “Did you try to convince Father and– wait, no, that wouldn’t have worked either, right?” she corrected herself.  
 
-“Nope. They both looked like they had been meaning to do this to him a long time ago.”   
+“Nope. They were meaning to do this to him a long time ago.”   
 
-“Well, if all those fights he’s caused are anything to go by, then, it makes sense why Father, Mother, and big sis would. But…” Lily’s emotional struggle to keep her thoughts in line became more apparent as she rubbed her eyes with her hands. “Yeah, I didn’t like him at all either, but this? I just got back from the Highlands weeks ago; the blizzards there are never something I’d wish upon anyone\! So why is he just accepting it like that\!? It’s insane\!”  
+“Well, if all those fights he’s caused are anything to go by, then, it makes sense. But…” Lily’s emotional struggle to keep her thoughts in line became more apparent as she rubbed her eyes with her hands. “Yeah, I didn’t like him at all either, but this? I just got back from the Highlands weeks ago; the blizzards there are never something I’d wish upon anyone\! So why is he accepting it like that\!? It’s insane\!” 
 
 *“If someone could become a swordsman by swinging a sword at the air the right way for months on end, would this world really need knights?”*  
 
 Thoughts still scattered, yesterday’s conversation nagged at Pendra’s mind. He nodded, but said nothing as he stared beyond the road again.  
 
-“Anyways, I’m going back inside, and you should too. We can’t miss out on that rumored tuna special in town\!” Lily marched back to the castle with all the refined dignity she could still muster for the morning.  
+“Anyways, I’m going back inside. Can’t miss out on that rumored tuna special in town\!” Lily marched back to the castle with all the refined dignity she could still muster for the morning.  
 
 *“You’re not gonna carve a legend sticking around in this forsaken dump.”*  
 
-“Yeah, we’ve been here too long. I’ll come with\!” With a casual stride, he trailed alongside her.   
+“I’ll come with\!” With a casual stride, he trailed alongside her.   
 
 *Mercer…where’s this suicide charge going?*   
 
@@ -705,6 +707,7 @@ The precise moment the carriage stopped and the gate to the Highlands came into 
 The checkpoint in front of the gate was less of a village and more a series of humble bases of wood. Two stone towers loomed, one on each side of the gate. The gate itself was a vast, caged sheet that, despite its old adage, still proved sturdy enough as one barrier between such harsh mountains and the rest of the world.  
 
 To Mercer’s right, there was a stone staircase leading down to a dungeon carved out entirely by hands of the Ashfolk. Though its pitch black darkness remained so far away, Mercer had seen enough of the depths below on both sides of the bars. In the silence, his memory picked up the roars and pleads–  
+
 *Like those dregs matter, idiot. Focus.*  
 
 Mercer put a hand to his face, still smeared in the blood from his delusion, and silently followed the guards into the oakwood cabin next to the stone tower on the left. The sign in front of the door said: “Reception.”  
@@ -731,17 +734,13 @@ He picked up the chair on his right, swung around clockwise, and slammed the sol
 
 Before the three soldiers could get themselves back together, Mercer quickly walked over to a giant chest of steel on the far right end of the cabin and kicked it open. It contained the necessary starting provisions and tools for camping out in harsh snow in satchels neatly lined up.  
 
-*Aside from that bald one, those two definitely know nothing about killing.*  
-
 While the other two tried to get their bearings together, the experienced soldier in question got up and stepped forward to confront him. “So you claim to understand our rules, yet act upon this foolishness anyway. Do not make this harder for all of us, Lord–”  
 
-“I’m making your forsaken job *easier* by going there myself. So step out of the way.” Mercer kicked open another large chest and grabbed a long, bundled chain whip with a morning star. Feeling its heavy weight and deceptively reliable length in his left hand, it felt like a weapon Mercer’s bloodstained hands had waited to grasp for all the years he had drawn breath. The whip became loosely latched onto the belt, ready for later use.  
+“I’m making your job *easier.* Get out of the way.” Mercer kicked open another large chest and grabbed a long, bundled chain whip with a morning star. Feeling its heavy weight and deceptively reliable length in his left hand, it felt like a weapon Mercer’s bloodstained hands had waited to grasp for all the years he had drawn breath. The whip became loosely latched onto the belt, ready for later use.  
 
 The last of the soldier’s patience had burned out as he drew his sword. His steps were of a slow and steady hunter cornering another hunter.  
 
-*Can’t boost myself with immolation, it’ll burn this down with me in it. Then…*  
-
-With his right hand, he swung the satchel at the soldier, but let go of it early, feinting a swing and chucking it at the front desk\! The receptionist, who just got up to head into the fray, narrowly dodged it by parrying it with her light hammer. The soldier saw the feint coming and still swung an agile slash, but Mercer stepped back and got off easy with a light scratch. His response: a gift of stone dust for the soldier’s eyes\!   
+With his right hand, Mercer swung the satchel at the soldier, but let go of it early, feinting a swing and chucking it at the front desk\! The receptionist, now recovered and into the fray, parried it with her light hammer. The soldier saw the feint coming and still swung an agile slash, but Mercer stepped back and got off easy with a light scratch. His response: a gift of stone dust for the soldier’s eyes\!   
 
 The soldier closed his eyes before the dust could hit, but by the time he could properly squint and step back, the prince had closed the distance off thanks to an instinctual prediction. With his right hand, he threw a hook while clenching the now unfastened morning star of the whip, hitting the soldier square in the face\!  
 
@@ -753,17 +752,15 @@ The brutal blow made him drop his sword in a daze, but Mercer had no time to res
 
 The prisoner slammed the recruit’s face with another whip strike\! As he fell unconscious, the receptionist attempted to stand again, but too many fractures from her wound disbarred it.  
 
-Mercer took another satchel and began walking out the front door. As expected, he was greeted by multiple guards with their steel spears and swords pointed at him, each one level headed and ready to strike at the drop of a pebble. Though this expected checkmate kept him in place, he did not step back.  
+Mercer took another satchel and began walking out the front door. As expected, multiple guards greeted him with their steel spears and swords pointed, each one level headed and ready to strike at the drop of a pebble. This inevitable checkmate struck no fear in him.  
 
 “If you all heard that, you know I don’t have the time for this.” His glare combed through all of them to find the leader in the back. “I’m talking to you, *ex-general*.”  
 
 “In all but name, the *ex* in that title is but the scratch of an ant.” A tall and stocky middle aged woman Mercer hated to recognize stepped forward. Her long locks of blonde hair starting to grey out, a face scarred by a long slash mark running down her right eye, frown as cold as the night on a new moon, and pitch black armor of steel was a sight none could forget upon one encounter. Other soldiers a fair distance from the confrontation gasped and gawked.  
 
 “G-General Thessein\!”   
-
 “It’s the general\!”  
-
-“F-finally\! She’ll save us from that wretch\!”  
+“F-finally\! She’ll save us from this wretch\!”  
 
 Her eyepatch this time was new, made of black leather with the insignia of a dragon’s maw at the center. “I take it the rebound to my old status never reached your ears, Lord Mercer Ashwright,” she said whilst folding her arms.  
 
@@ -777,7 +774,7 @@ Mercer clicked his tongue. “Don’t make this any worse that what’s in the c
 
 Her one eyed glare at its worst would cause the average person’s bladder and bowel control to collapse along with their haywire nerves. The fatalistic burns carved into Mercer’s soul kept him from deterrence. The staredown eventually silenced the entire camp, for every other soldier could feel its magnitude as equal to 3 days in a blood-soaked siege.  
 
-“Of course, if you’re also in the mood to see cheese in the human flesh, go ahead and skewer me. But instant execution is no repentance for my ‘crimes’; for something so merciful, I doubt your almighty *king* will forgive the name *Thessein Jo* a second time.”  
+“If you’re in the mood to see cheese in the human flesh, go ahead.” Mercer declared. “But instant execution is no repentance for my ‘crimes’; I doubt your almighty *king* will forgive the name *Thessein Jo* a second time.” 
 
 Neither of them said anything for 5 minutes. Agitation crept up on the soldiers with their spears pointed.  
 
