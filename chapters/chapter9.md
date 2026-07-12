@@ -320,7 +320,7 @@ Victor put his attention back on whetting his greatsword.
 
 He took a small swig of the flask. “It’s what you’ve always wanted, no?”  
 
-Victor frowned. “True, the man refuses to recant for such wanton violence; this exile was a long time coming after what he’s done. But it stands as trivial in the face of greater matters; I have scarce time to care for a rabid tiger being sent to the abyss above when these walls carry greater woes.”  
+Victor frowned. “True, the man refuses to recant for such wanton violence; this exile was overdue. But I have scarce time to care for a rabid tiger when these walls carry greater woes.”  
 
 “Sure that’s the right mindset? I heard about the hissy fit you threw against Gerwyn and Pendra. Ohhhh, it’s been eons since Father and Mother were *that pissed* at you.”  
 
