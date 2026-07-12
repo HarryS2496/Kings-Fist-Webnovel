@@ -182,40 +182,36 @@ Pendra let go of the bar, but held firm. “Okay, sure. But no matter how confid
 
 Pendra shrugged. “Personally, I’d rather the first legend I carve be something cool and exciting. Y’know, the type that doesn’t involve picking unnecessary fights to guarantee an early grave.”  
 
-“Do it while I’m gone.”    
-
-*Gone? Who’s gonna welcome you back here when those seven months are up, though? Well, I do still have three years left to finish at Katorus, but…eh, I’ll figure something out if the time calls for it.*  
-
-Mercer turned over to his left side, preferring to sleep with the wall in sight instead of his younger brother.  
+“Do it while I’m gone.” Mercer turned over to his left side, preferring to sleep with the wall in sight instead of his younger brother.  
 
 The unease sunk deeper into the air they inhaled.  
 
 “One minute remains, Lord Pendra,” said one of the guards.  
 
-*…Yeah, my head’s drawing blanks. Time to wrap it up.*  
+*…Yeah, no.*  
 
 “Well, that’s that, then. Farewell, brother.” Pendra waved before letting the guards escort him back out of the prison. Unsurprisingly, Mercer did not wave back.  
 
 Once Pendra had said his goodbyes to the prison guards, he stretched his arms and yawned before the coming night.   
 
-*Gerwyn’s punch definitely lit a fire in him. This wet boulder wasn’t worth the shove.*  
+*Carving a legend, eh…*  
 
 The young, casual 7th successor had gone past the point of anguish and began to move on.  
 
-*Carving a legend, eh…*  
+*Gerwyn’s punch definitely lit a fire in him. This wet boulder wasn’t worth the shove.* 
 
 It had been a while since Pendra found time to contemplate the goal of his dreams.  
 
-*Speaking of that incident, I haven’t seen Gerwyn since then. How he made Mercer bleed’s one thing, alright, but…*  
+*Speaking of which, I haven’t seen him since then. How he made Mercer bleed is one thing, but…*  
 
 He looked upon the looming stairs and the castle’s structure that embraced the coming darkness on his way inside.  
 
-*What’s he doing right now?*
+*What’s he doing now?*
 
 <br>
 <br>
 
-Gerwyn was on his own business of importance, located in the Ashen Archives as he usually was.  
+Gerwyn was in the Ashen Archives, as was oft.  
 
 Archive Master Cen Francis, the one he was looking for, was fortunately around the front desk and instructing the receptionist of something he dared not eavesdrop on. She noticed him right afterwards, fixed her golden spectacles and dark hair, and wasted no further time approaching him.  
 
@@ -223,9 +219,9 @@ Archive Master Cen Francis, the one he was looking for, was fortunately around t
 
 “Good evening to you too, Lord Gerwyn. You have arrived just in time.” She bowed, then flipped through her notepad again. “We’ve just managed to fulfill your request yesterday to find the origins behind that strange book *Knuckle Duster*. However…”  
 
-“...Was there little to be found on it?” asked Gerwyn.  
+“...Was there little to be found?” asked Gerwyn.  
 
-“Regrettably, yes. The text was the only one authored by this ‘Bobby West’ person, so there was nothing to trace back to. The material, too, has little documentation. Do you have the book with you now?”  
+“Regrettably, yes. The text was the only one authored by this ‘Bobby West’ person, so there was nothing to trace back to. Do you have the book with you now?”  
 
 “Yes, but…” Gerwyn lowered his voice to an audible whisper and came closer to Cen. “The truth is…the foreign make of it is worrying to keep in the light.”  
 
@@ -235,7 +231,7 @@ He carefully took *Knuckle Duster* out of his satchel and handed it to her. She 
 
 *If there’s anyone who can see the implications behind this, it’s Master Cen.*  
 
-“...\! You’re right. I’ve never personally seen anything like this before.” Cen handed the book back and whispered. “Keep it close at all times.”  
+“...You’re right. I’ve never seen anything like this before.” Cen handed the book back and whispered. “Keep it close at all times.”  
 
 “Do you have the name of the one who turned this into the Archives?” Gerwyn kept his voice low while putting the book away.  
 
@@ -247,17 +243,17 @@ The name forced him to step back on instinct.
 
 “G-Georg?”  
 
-Cen flipped another two pages in her notepad. “Yes, and it was also one of several books lent to us that day. The receptionist who he met reports that he ‘felt like giving away some souvenirs after so long.’”  
+Cen flipped another two pages in her notepad. “Yes, it was one of several articles lent to us that day. The receptionist who he met reports that he ‘felt like giving away some souvenirs after so long.’”  
 
 *No ‘souvenirs’ get brought into these archives, there’s an approval process to go through. Unless…did he bribe his way into skipping it?*  
 
-“Though he gave the information, it was under confidentiality. Only Master Zetz knows the origins of the books, and though I wish I could, a vow was ensured not to divulge that information. My sincerest apologies, Lord Gerwyn, but this is the most I can tell you.” Cen was familiar enough to figuratively read his mind.  
+“Though…it was under confidentiality; only Master Zetz knows the origins of the books. My sincerest apologies, Lord Gerwyn, but this is the most I can tell you.” Cen was familiar enough to figuratively read his mind.  
 
 *Then Georg…he knows the implications of this book better than I do. But Archive Master Zetz Niall? I know little of him too, but were those two close this whole time*   
 
 “No worries, I...understand.” answered Gerwyn. “But what of the other books he sent?”  
 
-“I could bring you a list for those, but most of them are in Master Zetz’s possession, whilst others were relegated to Floor 0.”  
+“Most are in Master Zetz’s possession, whilst others were relegated to Floor 0.”  
 
 **THUMP.**  
 
@@ -289,7 +285,7 @@ Though *It* was nowhere to be found, the shadows in the library began to remind 
 
 **THUMP.**  
 
-“...It’s nothing. Farewell, I’ll, uh…see you some other time.” Gerwyn felt shame in leaving the conversation on an awkward note.  
+“…Apologies, it’s nothing. Farewell, I’ll…see you some other time.” Gerwyn felt shame in leaving the conversation on an awkward note.  
 
 “Ah, well then, farewell, Lord Gerwyn.” Cen bowed to him as he walked off.  
 
@@ -304,9 +300,9 @@ Further into the night, Victor Ashwright held a moment of respite in his room.
 
 Once again, The workaholic blood of his veins had exhausted him with meetings, planning, and grueling practice.   
 
-*I have to make up for the mistakes back then somehow. Curses, if only my stamina was boundless.*  
+*I have to make up for the mistakes back then. Curses, if only my stamina was boundless.*  
 
-Unwilling to turn in just yet, he mustered up what he had remaining into polishing his true sword, now an old relic of a decade long passed. Before he could gather total focus into it, a gentle yet rapid knocking came from the other side of his room’s door. From the sound alone, Victor knew the only one who could be visiting him at this hour.  
+Unwilling to turn in yet, he mustered up what he had remaining into polishing his true sword, now an old relic of a decade long passed. Before he could gather total focus into it, a gentle yet rapid knocking came from the other side of his room’s door. From the sound alone, Victor knew the only one who could be visiting him at this hour.  
 
 “Enter,” he said.  
 
@@ -328,9 +324,9 @@ Victor frowned. “True, the man refuses to recant for such wanton violence; thi
 
 “Sure that’s the right mindset? I heard about the hissy fit you threw against Gerwyn and Pendra. Ohhhh, it’s been eons since Father and Mother were *that pissed* at you.”  
 
-Victor clicked his tongue. “I can recognize my method back then as too harsh. But should I have said nothing? Is it wrong for me to advise our brethren on what they can do to improve their conduct?”  
+Victor clicked his tongue. “I recognize my methods back then as too harsh. But should I have said nothing? Is it wrong for me to advise our brethren on what they can do to improve their conduct?”  
 
-“You’re ignoring the obvious in the room; Gerwyn of all people was the one to put him in his place. Is that not aweing to you?”  
+“You’re ignoring the obvious in the room; Gerwyn of all people was the one to put him in his place.”  
 
 Victor finished polishing the blade, becoming contemplative.  
 
@@ -338,23 +334,23 @@ Victor finished polishing the blade, becoming contemplative.
 
 “Everyone’s got a reason to fight. Would you have preferred him to sit there and take it?”  
 
-“Of course not. But it would have been preferable for him to not get involved in the first place. If the wind catches him fighting again, some will begin to think of him a warrior like the rest of us Ashwrights, and he’ll be forced to become one again.”  
+“Of course not. But it would have been preferable for him to not get involved in the first place. If the wind catches him fighting again, some will fancy him a warrior like the rest of us Ashwrights.”  
 
 “...And?”  
 
-“*And* he will be pushed to life-threatening exhaustion; do you not understand his condition? We cannot afford to have him on the brink of death when Zantche still remains an open option.” Victor sheathed the polished greatsword and put it back up on the wall.  
+“*And* he will be pushed into the role; do you not understand his condition? We cannot afford to send him to oblivion when Zantche still remains an open option.” Victor sheathed the polished greatsword and put it back up on the wall.  
 
 Georg raised an eyebrow. “Zantche? What does that have to do with–” He stopped himself at a small realization. “Ah, never mind, don’t tell me. You plan to marry him off to Princess Qaine, first heir to that indecisive kingdom, so that they’ll be indebted to us as a vassal.”  
 
-Victor took out a darker greatsword from the wall, and got to work with the whetstone again. “It is what’s best for him as well. The prosperity of Zantche’s land will prove better for his health than the snow here. We need a foothold in there before Lambda can do so.”  
+Victor took out a darker greatsword from the wall, and got to work with the whetstone again. “It is what fits him well. The prosperity of Zantche’s land will prove better for his health than the snow here. And we need a foothold in there before Lambda can do so.”  
 
-“It’ll provide its own challenges heavier than snow, though. Such as–”  
+Georg replied with haste. “It’ll provide its own challenges heavier than snow, though. Such as–”  
 
-“I am aware of those caveats too, Georg.” Victor did not mean to interrupt, but it was too late to back out of his words now. “To send one of our own kin into territory that stands between us and Lambda is a mortal risk in its own right.”  
+“I am aware of the caveats too, Georg.” Victor did not mean to interrupt, but it was too late to back out of his words now. “To send one of our own kin into territory that stands between us and Lambda is a mortal risk in its own right.”  
 
-“And Lambda’s still got some good relations with Zantcheans here and there. Last I checked during my previous stay in King Hans’s court, most of them were confident in gathering enough allies for a united front. Knowing that, will you still force him there per the marriage?”  
+“And Lambda’s still got relations with Zantcheans here and there. Last I checked in King Hans’s court, most of them were confident in gathering enough allies for a united front. Knowing that, will you still force him there per the marriage?”  
 
-“Our royal blood and name is still of high value. If all goes well and Gerwyn obeys, then his status alone should overwrite Lambda’s stake.”  
+“Our royal blood and name stands as high value. If all goes well and Gerwyn obeys, then his status alone should overwrite Lambda’s stake.”  
 
 “Zantche is but one of a plethora. The rest of the North doesn’t like Lambda any more than us, so with enough time and change, we’ll likely win some favors back. Who knows, maybe Xaede or the nomads exiled from the Highlands will come back at our doorstep.”  
 
@@ -374,15 +370,15 @@ The eldest folded his arms and frowned. “What do you mean, ‘what am I playin
 
 Victor clenched a fist, but kept his voice steady. “Now that you stand as a double agent, your loyalties to the crown are at risk. How am I to believe this information is not curated to drop this demesne’s guard?”  
 
-Georg had taken a swig of water out of his flask while Victor talked, then quickly answered him once he finished speaking. “Because I’m aiming for Lambda's downfall here too, little brother. Maybe I don’t share the same hatred of their people as you and Father do, but they still have no place being carved in history’s finest legends. If I have to sit in another few of those Lambdaein counsels with that blasted Arrogator *whilst* babysitting those *shitstains* spawned from his balls *whilst* listening to another one of those *god-cocksucking* fanatics that dare to call themselves advisors, I’m going to shove my head into the nearest blast forge and never take it out.”  
+Georg had taken a swig of water out of his flask while Victor talked, then quickly answered him once he finished speaking. “Because I’m aiming for Lambda's downfall here too, little brother. Maybe I don’t share the same hatred of their people as you and Father do, but they still have no place being carved in history’s finest legends. If I have to sit in another few of those Lambdaein counsels with that blasted Arrogator *whilst* babysitting those *shitstains* spawned from his balls *whilst* listening to another one of those *god-cocksucking* fanatics that dare to call themselves advisors, I’m going to shove my head into the nearest blast forge, permanently.”  
 
 “Are you–?”  
 
-“Serious, yes.” Georg successfully predicted Victor while stepping in closer. “No matter how much time will pass, nothing will sway my apostasy to the Seven. Least of all a kingdom that worships their every pore, and least of all one including the depraved mongrel they call *Neidhart*.”   
+“Serious? Yes.” Georg successfully predicted Victor while stepping in closer. “No matter how much time will pass, nothing will sway my apostasy to the Seven. Least of all a kingdom that worships their every pore, and least of all one including that depraved mongrel they call *Neidhart*.”   
 
 Such tricks of the tongue would have paralyzed any other, but Victor held firm in his questioning. To further combat any doubts in the mind, he picked back up the sword on the table and resumed the sharpening, whetstone fastened to his iron grip. “Lambda's fanaticism is sharpened more towards our downfall, no? I understand how you feel about the Seven, but it is difficult to believe that as enough of a reason you'd willingly stick to our side.” he said without pause to the craft.  
 
-“Well, let’s not even open the snake's crate of how they see the average Xaedean, since that proves my point *too* well.”  
+“Well, let’s not open the snake's crate of how they see the average Xaedean, since that proves my point *too* well.”  
 
 Curious, Victor scowled. “...No, let's. If you speak of how the Xaedeans worship Zaiklonael of the Wind and Erde Tierkreis of the Earth through more natural means instead, then I fail to see how that's enough for prejudice.”  
 
