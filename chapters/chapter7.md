@@ -6,9 +6,9 @@ Two children of differing royalty hiked along Ashwright’s main road to an adve
 
 Shenael Lunendra carried a large shovel by the handle in one hand and dragged a reluctant Gerwyn Ashwright by the arm with the other.
 
-“Alright, alright, I’ll come along; just quit dragging me around already\! People are watching\!” he insisted. 
+“Alright, alright, I’ll come along; quit dragging me around already\! People are watching\!” he insisted. 
 
-She let go of his arm and stopped, letting him catch his breath. 
+She let go of his arm and stopped to let him catch his breath. 
 
 *Why’s he always holding his chest like that? It can’t be that hard to carry these shovels.*  
 
@@ -80,7 +80,7 @@ Before Shenael could fire back, Gerwyn quickly put a finger to his clenched teet
 
 Though Shenael was at first unsure because of her equally broad build, the rough tones of her voice were enough to tell she was a woman of higher experience at her post.  
 
-“Are you sure, Helgra?” the guard named Tarcus turned his head to her. “It’s not going to look good on us if we just let two children wander off from here.”  
+“Are you sure, Helgra?” the guard named Tarcus turned his head to her. “It’s not going to look good on us if we let two children wander off from here.”  
 
 “It’s because they’re children that they should be allowed to wander every now and then. They won’t get many chances to play like that in the future.” the other guard named Helgra said with certainty. “‘Sides, the lad’s got a way with words and the lass is an elf; that’s enough to see they won’t stay out too late.”  
 
@@ -157,7 +157,7 @@ The Nexus.
 
 Despite the constricts on her legs that came with the dress she wore, Shenael’s pace did not falter. What may have taken twenty minutes for one going on a casual stroll, she cleared in less than ten with a run.   
 
-When the Nexus entered her sight, she slowed down to a stop and brushed the back of her dress. Though the sun had only just shone, many early risers were also on their way to the tower, and taking their time on the pathway there.   
+When the Nexus entered her sight, she slowed down to a stop and brushed the back of her dress. From the fresh crack of dawn, early risers galore took their time on the path to the tower.
 
 As she slowed her pace down and fixed her hair, the Nexus leered with every step.  
 
@@ -328,7 +328,7 @@ Though Shenael expected this reaction, she still flinched.
 
 “So they could protect us as well as we could protect them. It was when they attempted usage of the Zedrunae at the tragedy of the Vanadis Border when those relations became strained. And thus we arrive at a distant standstill with–”  
 
-“A standstill\!? Sherman Ashwright sees us as merely extra pieces for his own game\! You just admitted such yourself\! Yet you wish to throw those notions to the wayside simply out of fear of things Lambda has not done to us\!?”  
+“A standstill\!? Sherman Ashwright sees us as merely extra pieces for his own game\! You admitted as such\! Yet you wish to throw those notions to the wayside simply out of fear of things Lambda has not done to us\!?”  
 
 “*Yet in recent times*. That is the difference.” Icarr was the one to speak up this time.   
 
@@ -362,7 +362,7 @@ Ayes and raised hands spread across the table. Satisfied, Shenael's father scrib
 
 “Well enough to grant us safety against rogues and beasts alike; we still have no need for any of the Zedrunae. But…”  
 
-Though the meeting continued forward, Shenael’s thoughts were absorbed by the questions left behind. Though she kept her attention in the present, parts of it could not let go of what just happened.
+Though the meeting continued forward, Shenael’s thoughts were absorbed by the questions left behind. Though she kept her attention in the present, parts of it could not let go of what happened.
 
 <br>
 <br>
@@ -385,11 +385,11 @@ She quickened her walking pace as the Nexus’s southern exit became clear to he
 
 In her time as a mere shadow to the Sages, she had practiced this subtle escape as a plan to not bump into any of them by pure coincidence. To do so would mean time wasted on post-meeting chatter she currently had no energy for.   
 
-*Besides, what can I do about it now? It’s not like I could just leave this place and travel all the way to Ashwright just to ‘rescue’ him like a knight does for a princess in those obligatory fables. I’d have way more people to answer to than Mom and Dad for that.*  
+*Besides, what can I do about it now? It’s not like I could leave this place and travel all the way to Ashwright to ‘rescue’ him like a knight does for a princess in those obligatory fables. I’d have way more people to answer to than Mom and Dad for that.*  
 
 Her destination for today was a trip to Talon VI.  
 
-*Just have to put that aside for now. More importantly…*  
+*More importantly…*  
 
 **GRRUMBLE.**  
 
@@ -419,7 +419,7 @@ The pleasant aroma of spices and the crackling sounds of fire and meat wafted fr
 
 Urged by the instinct of a grumbling stomach, Shenael followed the smell without a second thought. She breathed a sigh of relief upon feeling the coinpurse inside her right pocket.  
 
-The younger brother, the merchant, wore a short coat of beige with pitch black wraps to cover his chest and stomach. A thick, long skirt, or sarong, as she just remembered it was called, draped his waist and legs in a mix of black with red and white lotus patterns. He worked the last of the lamb and chicken stocked behind him, turning the meat over a clay firebox topped with a metal grate and fed by a low flame beneath. One hand shifted the pieces, dressed in coats of orange and green spices before stabbing them into skewers; another occasionally raised a hand over the makeshift stove to amplify the flames underneath.  
+The younger brother, the merchant, wore a short coat of beige with pitch black wraps to cover his chest and stomach. A thick, long skirt, or sarong, as she now remembered it was called, draped his waist and legs in a mix of black with red and white lotus patterns. He worked the last of the lamb and chicken stocked behind him, turning the meat over a clay firebox topped with a metal grate and fed by a low flame beneath. One hand shifted the pieces, dressed in coats of orange and green spices before stabbing them into skewers; another occasionally raised a hand over the makeshift stove to amplify the flames underneath.  
 
 The elder brother, the bodyguard, wore a thick, grey tunic and black leather gear that had collected many tatters and frays from possible battles Shenael did not wish to fathom at the moment. An equally worn maroon cape hung over his leather armor, partially obscuring a sheathed scimitar-like weapon at the small of his back. To an untrained eye, his posture and crossed arms could be mistaken for an exotic statue at a high price. But she could tell from his eyes alone that he was on guard.  
 
@@ -427,7 +427,7 @@ The elder brother, the bodyguard, wore a thick, grey tunic and black leather gea
 
 Before she could greet them, the younger brother beat her to it.  
 
-“Hey there\!” he exclaimed in an accent more subtle than she expected. “Welcome to our wares, the ARKH wares, where we spread our wares from glorious Sri Yajurv and Krish Yajurv to everywhere else in Axiom\! I’m Ardhari and he’s Ramanari, and we Kailash brothers would normally ask what we can do you for. But everything here’s sold out, so I’m just here playing the chef to show our spices before we close up\! Anyways, you want some skewers? It’ll cost you a pinch, but not a painful pinch\!”   
+“Hey there\!” he exclaimed in an accent more subtle than she expected. “Welcome to our wares, the ARKH wares, where we spread our wares from glorious Sri Yajurv and Krish Yajurv to everywhere else in Axiom\! I’m Ardhari and he’s Ramanari, and we Kailash brothers would normally ask what we can do you for. But everything here’s sold out, so I’m here playing the chef to show our spices before we close up\! Anyways, you want some skewers? It’ll cost you a pinch, but not a painful pinch\!”   
 
 *…Uh, what?*   
 
@@ -435,7 +435,7 @@ The rapid-fire delivery of his words immediately told her the duo had been aroun
 
 “I’ll take four of those, then. How much is that?” she asked.   
 
-“10 Gold\! Just hand your coins over to my brother while I get to work\! Oh, and try not to stand too close to the flames unless you want the *amchur* to make you cry, yeah?” Ardhari wiped his oiled hands with a cloth, giving them a brief respite with a quick flex.  
+“10 Gold\! Hand your coins over to my brother while I get to work\! Oh, and try not to stand too close to the flames unless you want the *amchur* to make you cry, yeah?” Ardhari wiped his oiled hands with a cloth, giving them a brief respite with a quick flex.  
 
 *Nice, that’s cheaper than the usual lunch.*   
 
@@ -469,7 +469,7 @@ Shenael gave the coins to Ramanari. He nodded upon feeling their weight in his h
 
 Silence loomed over the three of them as Shenael and Ramanari both kept their mouths shut. The only alleviation to such an affliction was the consistent crackling of the fresh meat above the clay box.   
 
-“Eh, alright then, keep your thoughts, you two.” grumbled Ardhari. “I’ll just finish this up knowing–”  
+“Eh, alright then, keep your thoughts, you two.” grumbled Ardhari. “I’ll finish this up knowing–”  
 
 “Answer us now\!\! What manner of poison did you bring into our lands\!?”  
 
@@ -526,7 +526,7 @@ Both him and his companion, another light man with long blonde locks and a narro
 
 “Does it, now? You’re disturbing the crowd over something so trivial here. And this doesn’t seem like a shady business or anything.” Shenael fired back before turning to the Zantchean merchant. “What do you sell here?”  
 
-“Ah, uh, well, I’m just bringing some valuable goods over from Zantche, my homeland, but…” The Zantchean merchant stammered as he got his bearings together. “These two, they’ve been asking about my wares for the past few days and–”  
+“Ah, uh, well, I’m bringing some valuable goods over from Zantche, my homeland, but…” The Zantchean merchant stammered as he got his bearings together. “These two, they’ve been asking about my wares for the past few days and–”  
 
 “We’ve asked time and again for you to hand over the smuggled poisons and you have not complied.” snapped the long haired knight.  
 
@@ -598,7 +598,7 @@ With all her might, she slammed her right knee into his face\!\!
 
 Desmeus dropped his sword and stumbled about as a river of blood began to leak from both of his crushed nostrils. He muttered something unintelligible before falling face-first on the ground.  
 
-Rekolos had just wiped the blood off his mouth. He looked up to see Shenael with one leg extended upwards to the sky. While he tried to get up–  
+Rekolos wiped the blood off his mouth. He looked up to see Shenael with one leg extended upwards to the sky. While he tried to get up–  
 
 **CRASH.**  
 
@@ -636,7 +636,7 @@ Four healers in black cloaks had arrived, two of which had a staff on hand.
 
 “L-lady Shenael? W-w-what happened here?” stammered the staff holder who had called out, a dark lady with freckles and spectacles.  
 
-“These two *Meda* knights tried to arrest this human on false charges. They said it was about stamping out a hushpoppy resurgence, but I’m pretty sure they’re rogue pretenders who tried to imprison him so they could take all his wares. And from what I’ve just heard, they’ve been doing that to other human merchants, too.”  
+“These two *Meda* knights tried to arrest this human on false charges. They said it was about stamping out a hushpoppy resurgence, but I’m pretty sure they’re rogue pretenders who tried to imprison him so they could take all his wares. And from what I’ve heard, they’ve been doing that to other human merchants, too.”  
 
 “O-oh, I see.” the healer nodded as she scribbled down notes for Shenael’s report on a notepad.  
 
@@ -654,17 +654,17 @@ She patted him on the back. “I can promise you those *Meda* knights were rare 
 
 “I…figured…” he heaved. “The ones at…the gates were very nice as they…checked my wares. Apologies…I wish I was in a state to…greet royalty like yourself, but–”  
 
-“Hey, don’t worry, it’s fine, alright?” Shenael reassured. “You just hang in there, alright? Don’t be afraid to see the medics if your condition gets worse. News travels pretty fast around here, so I think they’ll recognize you at the nearest medical ward around.”  
+“Hey, don’t worry, it’s fine, alright?” Shenael reassured. “Hang in there, alright? Don’t be afraid to see the medics if your condition gets worse. News travels pretty fast around here, so I think they’ll recognize you at the nearest medical ward around.”  
 
-“Thank you…I think I’ll do…just that later.” he nodded as he wheezed.  
+“Thank you…I think I’ll do…that.” he nodded with a wheeze.  
 
 She walked back to the ARKH stall to pick up her skewers, where Ardhari sat dumbfounded.   
 
 “Don’t mind him.” Ramanari quickly stated. “He’s not used to women fighting as well as you did.”  
 
-“*Hey*\!\! Shut up, you\!” Ardhari broke out of his trance to chide his brother’s joke. “I just wasn’t expecting any of that, is all\! There’s plenty of warrior women well versed in martial arts in our motherland\!” He wiped his forehead with a cloth and turned to Shenael with the bag of skewers in hand. “Anyway, here’s your lunch, ‘Lady Shenael.’ I made sure to keep it nice and piping hot while you dealt some justice\!”  
+“*Hey*\!\! Shut up, you\!” Ardhari broke out of his trance to chide his brother’s joke. “I just wasn’t expecting any of that, is all\!” He wiped his forehead with a cloth and turned to Shenael with the bag of skewers in hand. “Anyway, here’s your lunch, ‘Lady Shenael.’ I made sure it's the way royalty loves it: piping hot\!”  
 
-“Oh, thanks for that.” she nodded, taking the bad “Hopefully this kind of thing doesn’t keep happening around for a while. You two…”  
+“Oh, thanks for that.” she nodded, taking the bag. “Yeah, those situations aren’t common, sorry you both had to deal with that earlier. I’ll ensure this gets nipped in the bud. You two…” 
 
 She trailed off as the murmurs intensified, unwilling to be tuned out:
 
@@ -681,16 +681,16 @@ She trailed off as the murmurs intensified, unwilling to be tuned out:
 
 *Godsdamn it, I need to get out of here already.*  
 
-“...You two take care, now. I’ll remember you both when I visit Yajurv someday.” she said before quickly walking off.   
+“...You two take care, now.” she said before quickly walking off.   
 
 *Gotta cool off the only way I know how.*  
 
 While walking along the routine path from the city to her training grounds in the glades, she rummaged through the bag and bit into a glistening skewer.   
 
-*Whoa, this is good. It’s nice I got this for a good price, but…it’s all still bugging me.*  
+*Whoa, this is good. He should be a chef sometime.* 
 
 Its balance between juicy meats and natural mango spice she had never experienced before was more than enough to please the stomach and freshen her mouth.  
 
-*What the hell is happening in Axiom?*  
+*But…*  
 
-Yet it did not wash the ringing out of her ears. 
+It did not wash the ringing murmurs out of her ears.
