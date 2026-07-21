@@ -790,7 +790,7 @@ It was unclear if Pendra was filling in the silence or striking a conversation. 
 
 “Say, this is kinda unrelated, but do you happen to know if something happened between Nadis and Vic? Cause that’s another reason he’s been so uppity today. I tried asking Georg about it, but he does his thing where he’s descriptive on some things but vague on what’s…”  
 
-Pendra trailed off as he just noticed Gerwyn’s current state.  
+Pendra trailed off and finally noticed Gerwyn's weariness.
 
 “Um…”  
 
@@ -800,13 +800,11 @@ As the two stood alone, another bout of silence permeated the halls lit by a fad
 
 Gerwyn simply nodded his head as he watched Pendra slowly disappear from his sight. Soaking in the loneliness once more, he finally let his legs give out.  
 
-*Gods, that felt like an eternity.*  
-
-Even just raising his trembling hand and staring at it felt like carrying a block of lead.  
+Even raising his trembling hand and staring at it felt like carrying a block of lead. He stared at it for what felt like an eternity.
 
 *I made someone bleed with this?* 
 
-As the memory of striking Mercer’s face came back, a slow stream of adrenaline pulsated once more in both hands.  
+The memory of striking Mercer’s face came back, and a slow stream of adrenaline pulsated once more in both hands. The blood from his nose did not abate from Gerwyn's mind. 
 
 *I made someone bleed with this. And without a stance, too.* 
 
