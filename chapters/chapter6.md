@@ -4,7 +4,7 @@
 
 By the time Gerwyn had finished, the sun had begun to set.  
 
-*So evening finally comes. Did not think I’d be here this long.*  
+*Did not think I’d be here this long.*  
 
 The fresh aches of his arms had finally hit him, yet they did not feel limp.  
 
@@ -12,7 +12,7 @@ Despite his exhaustion, vigor still ran through his body. Perhaps he hungered fo
 
 He picked Knuckle Duster back up from the ground and dusted off his sleeves and pants. As he began to walk back to the entrance, his hand slightly shuddered as it embraced the doorknob.   
 
-*Should take my time back down. It’ll be near nightfall when I head back.*  
+*It’ll be near nightfall on the way back.*  
 
 As he entered through the door and stared back at the stairs below him, enshrouded by a darkness undeterred by what little daylight there was to shine from the door and windows.   
 
@@ -20,7 +20,7 @@ Fear did not overcome him, for this sight was akin to yesterday’s.
 
 An inevitable abyss awaited him below, but the memory of its path remained fresh in his head.  
 
-*Just have to remember the loose stones as I walk back down. This will be riskier than the descent, but–*  
+*Need to remember the loose stones as I walk back down. This will be riskier than the descent, but–*  
 
 *“There’s few who walk up this tower, and fewer who walk back down.”*  
 
@@ -141,15 +141,15 @@ He scratched his forehead, perplexed by the outer details of a moment between th
 
 Though he had some awareness of the path to take to his chambers and the world around that path, racking his brain to further understand each conundrum that popped up was the higher priority of the now.  
 
-*Actually, that’s another question entirely: what sort of building are they in? Even in Katorus Academy and other architecture I’ve studied in drawings, I don’t recall one even remotely similar to where they’re at right now.*  
+*Actually, that’s another question: what sort of building are they in? Even in Katorus Academy and other architecture I’ve studied in drawings, I don’t recall one similar to where they are.*  
 
 Behind the couple in the piece was some sort of small, elevated arena with ropes as barriers. The floor, or what little he could see of the floor, was easy to recognize as carpet, but it seemed to stretch through the entire building floor as if it covered the whole area. A white wall stood off into the distance, with a row of small windows above it.   
 
-*It would be easier to narrow down this book’s origins if I knew a proper frame of reference this building relates to, except I don't. Perhaps…*  
+*If I knew a proper frame of reference, it would be easier to narrow down this book’s origins. But I don't, so…*  
 
 A hypothesis began to take shape.  
 
-*This book was made in a world outside Axio–*  
+*Perhaps this book was made in a world outside Axio–*  
 
 **Bump.**  
 
@@ -185,7 +185,7 @@ He glared at Gerwyn again, channeling the fury of *It* in his eyes.
 
 *Shit, not again.*  
 
-“All this space to move out of the way, yet you think you can just hide your face in yet another book and walk like you own this place?”  
+“All this space to move out of the way, yet you think you can hide your face in yet another book and walk like you own this place?”  
 
 *This isn’t going to end well even if I do nothing.*  
 
@@ -251,7 +251,7 @@ Gerwyn’s fear overtook the adrenaline, leaving him paralyzed once again. This 
 
 Pendra immediately latched onto Mercer and held back his arms.  
 
-“Hey, Mercer\!\!\! It’s not a big deal, let’s just settle down and–  
+“Hey, Mercer\!\!\! It’s not a big deal, let’s settle down and–  
 
 “Get off\!\! I’m not settling down until this wretch dies already\!\!” Mercer stomped on Pendra's foot to shake him off.  
 
@@ -329,7 +329,7 @@ Mercer was the only one who remained unfazed by their older brother.
 
 “So now the walls speak to you? Your eye for delusions sure grows sharper with each passing day.”  
 
-“And *you* prove to be more incorrigible with each passing day. Time and again, I’ve said that this behavior unbecoming of your status *must cease*, yet it clings to you as lifeblood\! Now, I will ask what happened here, and you will answer the questions with the words expected from the fourth successor of Ashwright\!”  
+“And *you* prove to be more *incorrigible* with each passing day. Time and again, I’ve said that this behavior unbecoming of your status *must cease*, yet it clings to you as lifeblood\! Now, I will ask what happened here, and you will answer the questions with the words expected from the fourth successor of Ashwright\!”  
 
 “I don’t need to tell you shit, it’s as clear as–”  
 
@@ -369,7 +369,7 @@ Her blinks became more conscious.
 
 Beatrice’s attention shifted from the two brothers to Gerwyn as he finally got up from the ground. “Is what he says the truth?”  
 
-*No use lying about it now.*   
+*No use in lying about it.*   
 
 He nodded with hesitation, unsure if the look she gave him still had *It* or pure surprise.  
 
@@ -402,7 +402,7 @@ Victor stood on the right side of the desk with two watchful eyes over the entir
 
 After the room fell silent in anticipation again, Sherman reviewed the paper. The look in his eyes immediately calculated a final judgement.  
 
-“This battle was another pointless struggle our kingdom must not know about. A fruitless inflation of ego at the cost of another’s dignity. Understand, Mercer, that this is the last straw to end the last straws. I thought those years of discipline at Katorus Academy would set you on the right path, but it seems that was a lapse in judgement after all.”  
+“This was another pointless struggle. A fruitless inflation of ego at the cost of another’s dignity. Understand, Mercer. This is the last straw to end the last straws. I thought those years of discipline at Katorus Academy would set you on the right path, but it seems that was a lapse in judgement.”  
 
 Mercer did not waver under the glare of their father. With crossed arms and a straightened posture, he held no fear in the face of Ashwright’s strongest.  
 
@@ -410,13 +410,13 @@ Mercer did not waver under the glare of their father. With crossed arms and a st
 
 “Are you listening?” Sherman said with slightly more clarity.  
 
-“Yeah, I heard you the first time, *Father.*” Mercer replied. “And I already know no matter what else I could say in my defense, you’ll take the cripple’s side. So just get it over with already.”  
+“Yeah, I heard you the first time, *Father.*” Mercer replied. “And I already know you’ll take the cripple’s side, so get it over with.”  
 
 “Be wary of how you address your king,” Victor gritted his teeth.   
 
 “Nobody’s talking to you, stonehead. Shut up.” Mercer replied, still unfazed.  
 
-Sherman cleared his throat to silence the room. “This time, your punishment will not be so merciful. Five months alone in the *Ashen Highlands* will keep your wrath in check.”  
+Sherman cleared his throat to silence the room. “This time, there will be no mercy by the crumb. Five months alone in the *Ashen Highlands* will keep your wrath in check.”  
 
 **THUMP.**  
 
@@ -444,11 +444,11 @@ An air of surprise and perplexity swept the room, palpable to a point Gerwyn cou
 
 *Soldiers looking to rise in rank stay there for a month at most, even in groups.*  
 
-“Yeah, no shit. That’s common knowledge you’ve imprinted unto us, withering *bastard*.”  
+“Yeah, no shit, withering *bastard*,” grumbled Mercer.
 
 *The longest I’ve heard anyone willingly camp there was when Victor did it alone for three months. If I recall correctly, even he struggled with survival.*  
 
-“Push this any further and see what happens, Mercer.” declared Victor, no longer restraining his contempt. “You’ve already done far enough during practice today; do not try our patience\!”  
+“Push this any further and see what happens, Mercer.” declared Victor, no longer restraining his contempt. “You’ve done enough during practice; do not try our patience\!”  
 
 *What happened during the spars to prompt this level of confidence?*  
 
@@ -458,11 +458,11 @@ Gerwyn looked up and, to his surprise, there were indeed markings from a chain a
 
 *Victory through strangulation. I’ve seldom heard of Victor losing to Mercer before.*   
 
-“Did the both of you already forget what I said earlier?” Beatrice interrupted from the sidelines. “Such squabbles will take this discussion nowhere. Remain silent in the presence of the king’s judgement.”  
+“Did the both of you forget what I said earlier?” Beatrice interrupted from the sidelines. “Such squabbles will take this discussion nowhere. Remain silent in the presence of the king’s judgement.”  
 
 *Wait…is that why he holds no fear now? Choking out a man’s still far from enough proof he can survive the Ashen Highlands\!*   
 
-“Thank you, Beatrice.” Sherman replied. “This matter cannot be resolved by mere repetition of past conflicts. The two of you would do well to remember that for the future.”   
+“Thank you, Beatrice.” Sherman replied. “This matter cannot be resolved by repetition of past conflicts. The two of you would do well to remember that for the future.”   
 
 *And even if he’s already been there before, staying for that long is another matter entirely. Forget punishment; this sentence might as well be a death penalty\!*  
 
@@ -580,13 +580,13 @@ The assailant did not listen. Neither did the victim.
 
 The Authority knew this long before today, but to restrain the Fury was to commit to an arduous struggle.   
 
-“Answer the question already\! Which one of us is it\!?” he shouted while resisting Victor’s grasp.  
+“Answer\! Which one of us is it\!?” he shouted while resisting Victor’s grasp.  
 
 **THUMP.**  
 
 “...I-it’s you.” Gerwyn replied with a wavering certainty.  
 
-“Yeah, that’s right; *me*\! I’m the one who’s lived there, while you’ve passed out over far less\! So you’ve got some nerve, thinking you can spit on my strength after getting away with this bullshit\! A bitch like you will not deny me a chance to soar higher than ever\!”  
+“Yeah, that’s right; *me*\! I’m the one who’s lived there, while you’ve passed out over far less\! So you’ve got some nerve, thinking you can spit on my strength after getting away with this bullshit\! A whimpering bitch like you will not deny me a chance to soar above the rest\!”  
 
 **THUMP.**  
 
@@ -594,9 +594,11 @@ The Authority knew this long before today, but to restrain the Fury was to commi
 
 “‘That’s not’ what? What, are you trying to say it still isn’t possible? You think because you’re too weak to even count as a person, it means you’ve got some perspective on weakness or some pretentious hogwash? Don’t make me–”   
 
-“Mercer, stop\!\! You’re just digging your own epitaph at this point\!\!” Pendra cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
+“Mercer, stop\!\! You’re digging your own epitaph\!\!” Pendra cut into the argument. He checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability. “Look, I have to agree with *him* on this; this really isn’t a punishment we should go through with\! Last straw or not, five months in the *Highland*s of all places is an unhinged–”  
 
-“Oh, don’t *you* start, Penny. I just said I know exactly what I’m digging for.” he growled. “You wanna know the truth, *cripple*? We may be of the same blood, but there’s a difference between us. Dregs like you cower behind the dresses of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
+“Oh, don’t *you* start, Penny.” he growled. “You wanna know the truth, *cripple*? We may be of the same blood, but that's where our kinship ends. Dregs like you are the disease that keep this world tied to a rotting sickbed. Your kind choose to cower behind the walls of this forsaken kingdom, saying it’s ok to live as a miserable weakling for a change and never seek–”  
+
+**SCHRACKLE.**
 
 With one spell, the tirade had come to a sudden end.   
 
@@ -608,7 +610,7 @@ The queen had gotten up from the sofa and slowly walked towards him, each step a
 
 “As your father *said*,” said Beatrice, voice low and furious, “*this* is the last straw to end *all* last straws. Five months is far too generous of a punishment; I suggest your exile be extended to six. How does that sound, dear?”   
 
-“As exact as what I would decree.” Sherman replied while writing more notes.  
+“Exact as what I would decree.” Sherman replied while writing more notes.  
 
 “Good.” She gave the room a quick scan, then turned to Gerwyn and Pendra. “The resolve you two have to defend your brother is worthy of admiration. Unfortunately, this is a final decision your father and I will not be changing our minds on.”   
 
@@ -630,17 +632,13 @@ He exchanged a look with Gerwyn, who only shook his head.
 
 **FWOOM.**  
 
-A fierce flame engulfed the icy prison Mercer had been shackled to.   
-
-*Self immolation?*  
+A fierce flame engulfed the icy prison Mercer had been shackled to.    
 
 Blazes radiated, slowly melting the prison and bringing spirit back to his cold body.  
 
-*Is that how far he’ll go to throw away his life?*   
+Though the burning pain carved itself into him, his rage remained undeterred. No matter how many times Gerwyn and Pendra witnessed this spell of self immolation, the resilience Mercer carried in his own inferno never ceased to awe them.
 
-Though the burning pain carved itself into him, his rage remained undeterred.  
-
-“Thanks for the extension, *Mother*. I'll make sure to savor that festive gift to the last drop. No matter how long this exile lasts, I’ll spend as much time as I need to make those mountains up north crumble to my feet. And once that’s finished…you and the rest of this kingdom better be ready.”  
+“Thanks for the extension, *Mother*. I'll savor this festive gift to the last drop. Those mountains up north will crumble to my feet, no matter how long it takes. And once that’s finished…you and the rest of this kingdom better be ready.”  
 
 He shoved Beatrice to the side and made his way to the door.   
 
@@ -656,23 +654,23 @@ Not that Mercer cared anymore, for he had kicked open the door and stormed off. 
 
 As Beatrice dusted off her shoulder and closed the office doors, an impervious silence suffocated the office once again.  
 
-“The two of you did your best to keep him in line, so you’ll be free to leave in just a moment.” she told Gerwyn and Pendra with a subtle smile of reassurance.  
+“The two of you did your best to keep him in line. Feel free to leave soon.” she told Gerwyn and Pendra with a subtle smile of reassurance.  
 
 The two brothers were about to sigh a breath of relief in unison–  
 
 “Are you sure about that, Mother?” Victor objected. “There’s a good reason we’ve put these two here for judgement as well.”  
 
-Pendra’s interrupted moment to relax had soured his demeanor into irritation. “*Come on*, Vic, it’s getting late, can we just–”  
+Pendra’s interrupted moment to relax had soured his demeanor into irritation. “*Come on*, Vic, it’s getting late, can we–”  
 
 “Silence, Pendra. You and Gerwyn have spoken enough.” he snapped.  
 
-“But he speaks the truth, Victor.” Beatrice added in, tilting her head in perplexity at the sudden statement. “If these two have spoken enough, would it not be common sense to let them retire for the night?”  
+“But he speaks the truth, Victor.” Beatrice added in, tilting her head in perplexity. “If these two have spoken enough, would it not be common sense to let them retire for the night?”  
 
 “Not when there’s room for necessary improvement,” he replied. “The blame of this incident may lie entirely within Mercer, but your conduct is also lacking, Gerwyn.”  
 
 *Here it comes.*  
 
-“You kept yourself absorbed in a book while walking in a hall, uncaring of what was around you. Why in the seven would you let yourself be that careless on royal grounds? It was one thing that you bumped into one of your brethren, but there was a greater chance you could have also instigated conflict with an advisor or knight\!”  
+“You kept yourself absorbed in a book while walking in a hall, uncaring of what was around you. Why in the seven would you let yourself be that careless on royal grounds? It was one thing that you bumped into one of your brethren. But there was a greater chance you could have also instigated conflict with an advisor or knight or anyone else\!”  
 
 *There was.*   
 
@@ -688,11 +686,11 @@ Pendra’s interrupted moment to relax had soured his demeanor into irritation. 
 
 “Vic, we’re being kept here for things that aren’t going to matter in the end anyways\! Gods forbid either of us have a justifiable reason to not–”  
 
-“Conduct is far more than mere *things*, Pendra Ashwright. They are what defines our status in this kingdom. And the two of you will learn every nook to its meaning before this  foolishness reflects poorly on the rest of us.”  
+“Conduct is far more than mere *things*, Pendra Ashwright. They are what defines our status in this kingdom. And the two of you will learn every nook to its meaning before this foolishness reflects poorly on the rest of us.”  
 
 *I already know just how far removed I’ve been from such conduct, no matter what has been tried.*  
 
-“Fooli–? You just said that the ‘blame for this incident’ lied within Mercer\!\! That’s basically admitting we’re innocent in this case, so what are you even mad at right now? What’s the problem here\!?” Pendra exclaimed, still confused.  
+“Fooli–? You just said that the ‘blame for this incident’ lied within Mercer\!\! That’s basically admitting we’re innocent in this case, so what’s the problem here\!?” Pendra exclaimed, still confused.  
 
 “The *problem* is in what the innocent should have done instead.”  
 
@@ -726,7 +724,7 @@ The feeling from when it had bent the fork began to well up back into him.
 
 “What could have possibly happened recently that compelled you towards such *peculiar* actions? If you do this for recognition, then such is a fool’s errand\!”  
 
-*Could I truly call it a fool’s errand to defend myself?*  
+*Was it truly a fool’s errand to defend myself?*  
 
 It transformed into a pit of bubbling tar and began to well up in his soul.  
 
@@ -782,15 +780,15 @@ Gerwyn slowly planted his back against a wall.
 
 Though his heart had calmed down, his mind was on its last legs in an attempt to remain stable.  
 
-“Honestly, it’s a good thing you didn’t come to practice; things got…weird.” Pendra shrugged. “I dunno if it’s because Vic and Mercer are so used to the snowfall around here that actual sunlight pisses them off for some reason, but it wouldn’t surprise me if they didn’t. Though seriously, how does sunlight piss someone off so much that they’d fake a slipup just to get a chokehold that violent?”   
+“Honestly, it’s a good thing you didn’t come to practice; things got…weird.” Pendra shrugged. “Dunno if it’s because Vic and Mercer are so used to the snowfall around here that actual sunlight pisses them off, but it wouldn’t be surprising if it did. Though, in that case, how does sunlight piss someone off so much that they’d fake a slipup just to get a chokehold that violent?”   
 
 The context of this ‘slipup’ was meaningless compared to the aches that assaulted his worn-out arms.   
 
-“And seriously, why in the seven is he being sent to the Highlands of all places? I feel like a better punishment in this case would be writing “I will not strike the audience during a spar” a thousand times on parchment or something. It’s less extreme in comparison and gets the point across faster, I think. Heh, but then again, he’d also have to write a bunch of other things a thousand times if we account for other stunts he’s pulled.” he chuckled.  
+“And seven alive, why the Highlands, of all places? I feel like a better punishment in this case would be writing “I will not strike the audience during a spar” a thousand times on parchment. It’s less extreme in comparison and gets the point across faster, I think. Heh, but then again, he’d also have to write lots of other things a thousand times if we consider other stunts he’s pulled.” he chuckled.  
 
 It was unclear if Pendra was filling in the silence or striking a conversation. Gerwyn longed for the strength to humor him, for he lacked it.  
 
-“Say, this is kinda unrelated, but do you happen to know if something happened between Nadis and Vic, and what that might be? Cause that’s another reason *he’s* been so uppity; they were holding back some shit until after dinner yesterday. I tried asking Georg about it, but he ended up doing his thing where he’s descriptive on some things but vague on what’s…”  
+“Say, this is kinda unrelated, but do you happen to know if something happened between Nadis and Vic? Cause that’s another reason he’s been so uppity today. I tried asking Georg about it, but he does his thing where he’s descriptive on some things but vague on what’s…”  
 
 Pendra trailed off as he just noticed Gerwyn’s current state.  
 
@@ -806,11 +804,11 @@ Gerwyn simply nodded his head as he watched Pendra slowly disappear from his sig
 
 Even just raising his trembling hand and staring at it felt like carrying a block of lead.  
 
-*I…really made someone bleed with this, huh?*  
+*I made someone bleed with this?* 
 
 As the memory of striking Mercer’s face came back, a slow stream of adrenaline pulsated once more in both hands.  
 
-*And without getting into a fighting stance, too. That was far from the best I had.*  
+*I made someone bleed with this. And without a stance, too.* 
 
 Like a constellation, more thoughts began to connect together.  
 
@@ -818,12 +816,10 @@ Like a constellation, more thoughts began to connect together.
 
 There was no need for a night sky to decipher the answer behind connecting the crushed fork, the mysterious book *Knuckle Duster*, the tower, and Mercer’s nosebleed to reveal the bigger picture.  
 
-*What else is this hand capable of?*  
-
 The thick fog of Gerwyn’s world dissipated.  
 
 After having walked in circles for too long, a straight road became clear to him.  
 
 With determined focus, he looked upon his hand and clenched it into a fist.  
 
-*I know what I must do now.*
+*What else is this hand capable of?*  
