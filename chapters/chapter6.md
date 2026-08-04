@@ -562,11 +562,11 @@ It had been far too long since he had spoken up in a matter such as this.
 
 The impact from Mercer’s fist had knocked him off the chair.   
 
-Pain seared through both his right cheek and left side as he struggled to recover from the blow. Pendra quickly checked on Gerwyn to see if he was in serious pain, then sighed in relief at his unusual durability.
+Pain seared through both his right cheek and left side as he struggled to recover from the blow. 
 
 “A death sentence, you say? Speak for yourself, *wretch*.” said Mercer, uncaring of the shock he had drawn in the office.  
 
-“Hey\!” protested Pendra.  
+“Hey\!” protested Pendra. He quickly checked on Gerwyn, then sighed in relief at his unusual durability.
 
 “Mercer\!\!” shouted Victor.  
 
