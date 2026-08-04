@@ -628,7 +628,7 @@ Her commanding eyes were enough to force him back to the couch, and in a state m
 
 He exchanged a look with Gerwyn, who only shook his head.  
 
-*Well, it was an attempt. There’s nothing else I can say, so please let this be the end of it–*  
+*If we keep this up, we'll only land in boiling waters. So please let this be the end of–*  
 
 **FWOOM.**  
 
