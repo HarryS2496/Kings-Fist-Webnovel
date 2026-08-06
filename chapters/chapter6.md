@@ -347,11 +347,7 @@ As the two brothers got the message, she turned back to Pendra. “To continue, 
 
 Beatrice blinked in surprise. “...Gerwyn did it?”   
 
-He nodded. “The funny thing is, Mercer was about to strike first, but *his* punch was way faster.”   
-
-Her blinks became more conscious.  
-
-“Yeah, I’m still shocked about it right now.” added Pendra.  
+He nodded. “The funny thing is, Mercer was about to strike first, but his punch was way faster. And yeah, I’m as shocked as you are.” 
 
 “And you’ve got a death wish too, apparently.” growled Mercer.  
 
@@ -369,11 +365,9 @@ He nodded with hesitation, unsure if the look she gave him still had *It* or pur
 
 “Good, your assistance may be needed for this. All of you, come with me. The king will see to your judgement this time.”  
 
-As she walked off, Gerwyn was at the mercy of her lead, following by instinct.   
+Gerwyn put himself at the mercy of where she walked, fully aware of the looming destination. 
 
-She did not need to elaborate where their destination was.  
-
-*This is the worst.*
+*I should've jumped.*
 
 <br>
 <br>
@@ -418,7 +412,7 @@ Gerwyn’s vision went from staring into the dark carpet to glancing between She
 
 Mercer looked down at the carpet for a moment, then shrugged slightly.  
 
-“Alright, then,” he replied in a flat tone.  
+“Alright, then,” he replied flatly.  
 
 **THUMP.**  
 
