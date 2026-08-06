@@ -2,13 +2,7 @@
 
 “3994…3995…3996…3997…3998…3999…4000\!”
 
-By the time Gerwyn had finished, the sun had begun to set.  
-
-*Did not think I’d be here this long.*  
-
-The fresh aches of his arms had finally hit him, yet they did not feel limp.  
-
-Despite his exhaustion, vigor still ran through his body. Perhaps he hungered for more.  
+By the time Gerwyn had finished, the sun had begun to set.  The fresh aches of his arms had finally hit him, yet they did not feel limp.  Perhaps they hungered for more.  
 
 He picked Knuckle Duster back up from the ground and dusted off his sleeves and pants. As he began to walk back to the entrance, his hand slightly shuddered as it embraced the doorknob.   
 
@@ -173,7 +167,7 @@ His companion, Pendra, had kept walking unbothered, but the question prompted hi
 
 “Uh, Mercer? We gotta–”  
 
-“Shut up. I’m asking the questions here.”   
+“*Shut up.*”   
 
 He glared at Gerwyn again, channeling the fury of *It* in his eyes.   
 
@@ -181,31 +175,27 @@ He glared at Gerwyn again, channeling the fury of *It* in his eyes.
 
 **THUMP.**  
 
-“We’re in a big hallway, yet you can’t even look at what’s in front of you?”   
+“Can’t even look alive, can you?”   
 
 *Shit, not again.*  
 
-“All this space to move out of the way, yet you think you can hide your face in yet another book and walk like you own this place?”  
+“All this space to move out of the way, yet you hide in another book and walk like you own it all, eh?”  
 
 *This isn’t going to end well even if I do nothing.*  
 
-Pendra seemed to catch on to the fact too, as a mixture of awkwardness and worry prompted him to step into the standoff. He got between the two brothers and put a hand on Mercer’s shoulder.  
+Pendra, now more worried, got between the two brothers and put a hand on Mercer’s shoulder.  
+
+“Come now, this isn’t–”
+
+“I said. *Shut up*. *Penny*.”  
 
 **THUMP.**  
 
-“Come on, man, this isn’t a good time for–”  
-
-“I said. Shut up. *Penny*.”  
-
 The youngest of the three backed off slightly, but remained alert.   
 
-*Pendra won’t be enough to stop him once things get worse.*  
+*I can only hope my injuries after this aren’t fatal.*  
 
-“Either there’s nothing in that head of yours, or there’s something you’ve got to say here.” Mercer continued.  
-
-*I can only hope my injuries after this aren’t too fatal.*  
-
-“What, are you aiming for some record for reading all the shit below us?”  
+“What, are you aiming for some record for reading all the shit below us? No other cares in the world, you'd rather hide under the ground like a bumbarass mole?” Mercer interrogated.
 
 *I can only hope…right?*   
 
@@ -353,9 +343,9 @@ Victor clenched his teeth. “What part of “words expected from the fourth suc
 
 As the two brothers got the message, she turned back to Pendra. “To continue, you said this fight started with Mercer being punched in the face. Can I assume that you threw the first blow and he took it out on Gerwyn?”  
 
-“Oh no, I tried to stop the fight. Gerwyn’s the one who punched him.” Pendra immediately corrected.  
+“Oh, no, no, I tried to stop the fight. Gerwyn’s the one who punched him.” Pendra immediately corrected.  
 
-Beatrice showed a flicker of surprise. “...Gerwyn did it?”   
+Beatrice blinked in surprise. “...Gerwyn did it?”   
 
 He nodded. “The funny thing is, Mercer was about to strike first, but *his* punch was way faster.”   
 
@@ -371,9 +361,7 @@ Beatrice’s attention shifted from the two brothers to Gerwyn as he finally got
 
 *No use in lying about it.*   
 
-He nodded with hesitation, unsure if the look she gave him still had *It* or pure surprise.  
-
-Mental exhaustion prevented him from telling the difference.  
+He nodded with hesitation, unsure if the look she gave him still had *It* or pure surprise. Mental exhaustion prevented him from telling the difference.  
 
 “It appears we will need to discuss this further with your father. Victor, do you have any business elsewhere today?”  
 
