@@ -196,7 +196,7 @@ Once Pendra had said his goodbyes to the prison guards, he stretched his arms an
 
 *Carving a legend, eh…*  
 
-The young, casual 7th successor had gone past the point of anguish and began to move on.  
+The 7th successor had gone past the point of anguish and began to move on.  
 
 *Gerwyn’s punch definitely lit a fire in him. This wet boulder wasn’t worth the shove.* 
 
@@ -249,7 +249,7 @@ Cen flipped another two pages in her notepad. “Yes, it was one of several arti
 
 “Though…it was under confidentiality; only Master Zetz knows the origins of the books. My sincerest apologies, Lord Gerwyn, but this is the most I can tell you.” Cen was familiar enough to figuratively read his mind.  
 
-*Then Georg…he knows the implications of this book better than I do. But Archive Master Zetz Niall? I know little of him too, but were those two close this whole time*   
+*Then Georg…he knows the implications of this book better than I do. But Archive Master Zetz Niall? I know little of him too, but were those two close this whole time?*   
 
 “No worries, I...understand.” answered Gerwyn. “But what of the other books he sent?”  
 
