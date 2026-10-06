@@ -1,4 +1,3 @@
-
 “Lovely morning we're having, eh, little brother?”  
 
 **THUMP.**  
@@ -154,11 +153,10 @@ After far too many hoarse breaths to count, his weak voice came back to him.
 <br>
 <br>
 
-Gehenna let out another yawn as the current spar neared its end.  
-
+Gehenna let out another yawn at the current spar nearing its end.  
 “Deriyaaa\!\!”  
 
-A sudden yet fierce blow from Victor disarmed Pendra, sending his axe flying into the sky. Another swift motion brought the commander’s greatsword up to the jester prince’s neck.  
+A sudden, fierce blow from Victor disarmed Pendra, launching his axe into the sky. Another swift motion brought the commander’s greatsword up to the jester prince’s neck.  
 
 *Unfortunate, Penny. You got carried away again.*  
 
@@ -190,14 +188,13 @@ He didn’t hesitate to plop down on her seat as she walked to the sparring grou
 
 Victor stared Gehenna down as she stood on the other side of the grounds.  
 
-“To make up for your tardiness and your two week absence, I will not hold back against you this time. Your reflex against Mercer’s foul play shows you still have a sharp edge, so I will expect much from you. Do not hold back.” he commanded while holding his sword up.  
+“To make up for your tardiness and your two week absence, I will not hold back against you this time. Your reflex against Mercer’s foul play shows you still have a sharp edge, so I will expect much from you. So do not hold back.” he commanded while holding his sword up.  
 
 “Oh trust me, I had no plans to.” Gehenna smirked as she sharply drew her wooden knife and flicked her shining hair. Victor flinched a little as he looked at her.  
 
 *Good. My hair’s catching him off guard. Just as planned.*  
 
 “Come, then\!” Victor declared. The duel began.   
-
 Victor took the initiative with a quick swing, but Gehenna sidestepped and leapt in.   
 
 Before she could get close, he turned his body to protect himself with another swing, forcing her to step back.  
@@ -234,7 +231,51 @@ It was another strategy, and she felt no remorse in stealing it.
 
 A smirk almost caught her lips as she took her stance again.  
 
-*All I need is one.*
+*All I need is one.*  
+
+Gehenna continued to dance in and out of Victor’s range.  
+
+His swings grew faster and sharper with each passing second. While she had only fought one battle today, he fought two; the first against her, the second against the waterfall of sweat born from exhaustion.  
+
+*It’s impressive he’s still able to look alive after three bouts. But…*  
+
+She dashed another circle around him.  
+
+*It’s only a small matter of time until he loses his patience. That’s when I’ll strike.*  
+
+But the commander was not foolish enough to let that opportunity come easily.  
+
+He remained on the defense and kept his eyes concentrated on her footwork.  
+
+Then he briefly closed them and took a deep breath.  
+
+*Or he could do that\!*  
+
+Right as he was breathing, she threw another feint, forcing him to slash horizontally.  
+
+She rolled under the slash and got her blade close to his neck–  
+
+**WHAM.**  
+
+The slash was a feint. He had whacked the butt of the blade into her chest, forcing her to stagger back.   
+
+On instinct, she backed away further before Victor could draw the blade to her neck.  
+
+“Augh, so close\!” shouted Pendra.  
+
+“Don’t give up, big sis\!\!” cheered Lily.  
+
+The support was enough to get her head back into the fight.  
+
+She got her footing back together before getting her stance back.  
+
+“Not good enough.” he quickly noted.  
+
+*Yes, I got too greedy there. Seems he holds more patience than I thought.*   
+
+Her steps regained their usual speed as she charged in.  
+
+*More for him to lose, then.*
 
 <br>
 <br>
@@ -265,7 +306,7 @@ Even after telling himself not to feel anything, *It* always came back to him.
 
 *I could just lie here for the rest of my life.*   
 
-*It* would continue to follow him no matter where he went in this kingdom.  
+*It* would continue to follow him no matter where he went in this kingdom*.*  
 
 *No one would even bother going up here to find the body.*  
 
@@ -321,33 +362,25 @@ His stomach growled again.
 
 “First comes lunch.”  
 
-Unlatching the satchel around his belt, he brought out both the other sandwich and *Knuckle Duster*, then leaned against the wall next to the door.   
+The winds at the tower’s peak had gone quiet. Unlatching the satchel around his belt, Gerwyn brought out both the other sandwich and *Knuckle Duster*, then leaned against the wall next to the door. Reading while standing up was no talent of his, but it was better than letting the stone lull his legs back to sleep.  
 
-Reading while standing up was no talent of his, but it was better than letting the stone lull his legs back to sleep.  
+He sighed in relief upon seeing the sandwiches and the manual unharmed. One hand unwrapped the egg and vegetable sandwich, and he bit into it. The other opened the book to what had been overlooked: the foreword.  
 
-He sighed in relief upon seeing the sandwich and the manual unharmed.   
-
-One hand unwrapped the egg and vegetable sandwich, and he bit into it.   
-
-The other opened the book to the first 2 pages: the foreword. An overlooked section.  
+*What in the…?*  
 
 The page on the left showed a piece of art unlike anything he had seen before.   
 
 No, to call it a piece of art would be the incorrect label for it. It was too pristine, too unidentifiable to include in the foreword of a combat manual.  
 
-*What…am I looking at?*  
-
 A pale man and a tan woman, each with one arm around each other. The hints of defined muscle underneath their slim builds was enough evidence to tell Gerwyn these two were experts at their craft.  
 
-The man’s smirk was as encouraging as it was confident.  
-
-The woman’s beaming smile could light up a room with ease.   
+The man’s smirk was as encouraging as it was confident. The woman’s beaming smile could light up a room with ease.   
 
 His eyes darted around the page for a quick answer and found a caption at the bottom of the piece: 
 
 <br>
 
-***“Me and my beautiful girlfriend, Akira Shigure.”***
+***“Me and my girlfriend, Akira Shigure.”***
 
 <br>
 
@@ -369,7 +402,7 @@ The thick white shirt he wore underneath had a peculiar design featuring a black
 
 The northern circle depicted a tortoise with a serpent for a tail and a pitch black shell that carried an indestructible shine, The two were locked in a furious staredown as raging waters rose around them.   
 
-*Are those depictions of Axiom’s seven gods? No, definitely not, they have to be something else entirely. I mean, the turtle, the snake, and the waters look just as furious as Neidhart, but no one would ever be caught dead associating his likeness with those two animals. In fact, if wind of this depiction was ever caught before, there’d also be a fable about him tormenting the artist who dared to compare him to a “land-dwelling-stain”.*  
+*Are those depictions of Axiom’s seven gods? No, definitely not, they have to be something else entirely. The turtle, the snake, and the waters look as furious as Neidhart, but no one would ever be caught dead associating his likeness with those two animals. In fact, if wind of this depiction was ever caught before, there’d also be a fable about him tormenting the artist who dared to compare him to a “land-dwelling-stain”.*  
 
 The western circle depicted a pure white tiger with pitch black scar-stripes across its fur. It fiercely bared fangs as sharp and cold as steel while discharging lightning as if it were armor.   
 
@@ -377,7 +410,7 @@ The western circle depicted a pure white tiger with pitch black scar-stripes acr
 
 The eastern circle depicted a dragon with scales the color of jade and azure, a snake-like body, and four pristine claws. The dragon gave a calm yet deadly glare as an energetic wind and mist enshrouded its being like a veil.  
 
-*Dragons are never associated with the seven. Nobody would dare.*  
+*Dragons are never associated with the Seven. Even in this kingdom, none would dare.*  
 
 The southern circle depicted a vermillion pheasant with long, aged legs the color of golden oak. As the majestic bird spread its massive wings to reveal the radiant flame-like plumage within its span, it unleashed an inferno so violent and bright, Gerwyn almost flinched from looking at it.  
 
@@ -393,17 +426,15 @@ In the white center of the rhombus were four black symbols he could barely make 
 
 Gerwyn did not recognize these letters. No language or ancient characters recorded into Axiom’s history had ever shown him what the symbols were, or what they could possibly represent.  
 
-*There are no records of a mythos or faith showing anything close to this, not even in the realms of obscurity. Some would even twist their throats to call this shirt a campaign of heresy.*  
+*There are no records of a mythos or faith of this. Some would twist their throats to call this shirt a campaign of heresy.*  
 
 Though the piece showed both of them from head to torso, the bottom of its frame gave a glimpse of his jeans, showing what appeared to be slash marks arranged like stripes.   
 
 Gerwyn snapped out of awe, and briefly hung the sandwich in his mouth to run a finger around the piece.   
 
-*And this isn’t a hallucination.*   
+*And this isn’t a hallucination. What I’m seeing is what I’m getting.*  
 
 The foreign yet sharply cold texture of the clean pages reminded him as much.  
-
-*What I’m seeing is what I’m getting.*  
 
 He put the sandwich back in his hand and directed his focus back to the “beautiful girlfriend” next to Bobby.   
 
@@ -419,25 +450,13 @@ What was most peculiar, though, were the markings around some parts of her body.
 
 *None of those marks seem to be a sigil or a component of a magic circle, either. I’ve heard of this form of art being common among the Highlanders, but what they normally depict is far different.*   
 
-Whatever they were, the placement of them was precise enough to let her muscle and tones shine even further.  
+Whatever they were, the placement of them was precise enough to let her muscle and tones shine further.  
 
 The gravity of the piece’s details became heavier the more Gerwyn looked at it.  
 
-*Well, I know one thing for sure now. If I crossed one of these two wrong, they’d both put me in my grave with their bare hands. But for some reason…*  
+*Well, one thing is certain. If I crossed one of these two wrong, they’d both put me in my grave with their bare hands.*   
 
-His hand checked on the pulse, which remained stable.  
-
-*I don’t feel scared.*   
-
-Perhaps the answer lied in their happiness as it permeated the page.  
-
-*Can two people really become this happy from a relationship? I’ve seen it in many a chronicle, but is it possible in reality too?*  
-
-His thoughts wandered back to the dream before this morning, then to the wolfish grin Shenael always had.  
-
-*Yeah, right. Like that’s ever gonna happen.*  
-
-Not wishing to dwell on worth, his focus readjusted to the next page on the right.   
+His focus readjusted to the next page on the right.   
 
 A short passage of pristine lettering greeted him.
 
@@ -449,7 +468,6 @@ A short passage of pristine lettering greeted him.
 
 **I dedicate this to anyone else besides my father, a sniveling coward who said I’d never amount to anything right before chasing a golden kingdom he’ll never smile at.**
 
-<br>
 
 **No matter how many weapons there are in this world, few are like the human body itself.**  
 
@@ -471,7 +489,7 @@ A short passage of pristine lettering greeted him.
 
 <br>
 
-*Okay…I can understand knives, considering how useful they are for thieving and assassinations. But…guns? Nukes? A red button? What is he talking about? And what could they possibly do that would make them more practical to mention than a sword or spear?*   
+*Okay…I can understand knives, considering how useful they are for thieving and assassinations. But…guns? Nukes? A red button? The president? What is he talking about? And what could they possibly do that would make them more practical to mention than a sword or spear?*   
 
 A bite of the egg sandwich helped keep Gerwyn’s pile of questions under control.   
 
@@ -494,12 +512,9 @@ Another bite helped him digest the author’s last question.
 <br>
 
 Another pile of questions, another bite into the sandwich.   
-
-*Mike Tyson? Who in the seven is that? That name’s never touched any pages in Axiom, yet he speaks the quote like it’s a carving in history.*  
-
+*Who is this Mike Tyson? That name’s never touched any pages in Axiom, yet he speaks the quote like it’s a carving in history.*  
 Gerwyn looked up to the blue sky, then let out a sigh before turning to the next page.  
-
-“And who in the seven are you…Bobby West?”
+“And who in the seven are you, Bobby West?”
 
 <br>
 
@@ -511,25 +526,13 @@ Gerwyn looked up to the blue sky, then let out a sigh before turning to the next
 
 **I’ve studied martial arts – boxing, kickboxing, karate, muay thai, MMA, etc.**   
 
-**I’ve lived on the streets and in the ring for far too long.**  
+**I’ve lived and breathed the streets and rings of too many to count.**  
 
-**There’s always chaos beyond the glitz and glamour.**  
+**There’s always chaos beyond the glitz. There’s always legends that come and go. There’s always people who see the winner as king. There’s always talk of the victories and streaks that attract the eyes on the throne. There’s always cheers to the bleeder.**  
 
-**There’s always legends that come and go.**  
+**But few speak of the bleeding. Few speak of the times you see death’s door.**  
 
-**There’s always people who see the winner as king.**  
-
-**There’s always talk of the victories and streaks that attract the eyes on the throne.**  
-
-**There’s always cheers to the bleeder.**  
-
-**But few speak of the bleeding.**  
-
-**Few speak of the times you see death’s door.**  
-
-**Few speak of the agony from both winning and losing.**  
-
-**Few speak of the throne as a frail chair.**  
+**Few speak of the agony from both winning and losing. Few speak of the throne as a frail chair.**  
 
 **Knowing this, I still chose to write this book.**  
 
@@ -537,7 +540,7 @@ Gerwyn looked up to the blue sky, then let out a sigh before turning to the next
 
 <br>
 
-*I’ve asked far more than ‘one thing’ here, but yes, that’s correct.*
+*I’ve got far more than ‘one thing’ to ask here, but yes, that’s correct.*
 
 <br>
 
@@ -548,31 +551,20 @@ Gerwyn looked up to the blue sky, then let out a sigh before turning to the next
 <br>
 
 Gerwyn raised his eyebrows and took the final bite.   
-
 No morsel remained. 
 
 <br>
 
 **They’re all I need to answer the pain of my friends with kindness and the evils of my enemies with violence.**   
-
 **So I wrote this to tell you how to do the same.**  
-
 **You’ve got hands. You’re holding this book with them right now.**   
-
 **And you can learn how to prevail in a fight with just those fists.**  
-
 **Once you do, you won’t need a knife or a gun to prove yourself.**  
-
 **It won’t be an easy road, though. The human body only gets stronger with consistent repetition and exercise.**   
-
 **If you throw a punch and it hurts, it’s not because you got lucky.**   
-
 **It’s because you threw that punch thousands of times.**  
-
 **And if you’re eventually planning to fight others, you’ll find many who surpass you. If you want to win against them, you’ll first have to learn how to lose.**   
-
 **To fall and get back up is just a part of the process in bettering yourself.**  
-
 **But hey, that goes for any skill worth having, right?** 
 
 <br>
@@ -595,15 +587,9 @@ A stray sunray suddenly caught him off guard and brought him back to the book. T
 
 Bobby’s final words finally brought him away from the hard stonewall his back had ached over for too long.   
 
-*I’ve wasted enough time getting stuck on questions without an answer.* *And none of them relate to what I actually came here to do.*   
+*Right, this isn’t the time to dwell on the prose’s flowers.*   
 
-To properly recollect, he turned the pages back to the diagram showing the stance.  
-
-*Right, that’s how it went. Good thing it’s short enough to easily remember.*  
-
-He turned to the next page.   
-
-The diagram showed the man throwing a punch. 
+To properly recollect, he turned the pages back to the diagram showing the stance. He turned to the next page, a diagram with a man throwing a punch. 
 
 <br>
 
@@ -643,11 +629,11 @@ The unfamiliar discomfort slowed down his steps, as if his body was dying to ask
 
 *Left shoulder forward…elbows close to ribs…tuck the chin…*  
 
-This was unlike any other weapon stance he had attempted and abandoned.  
+It was unlike any other stance long abandoned.  
 
 *Hands up and thumbs outside fists.*  
 
-“Can I even move around like this?”  
+“Can I move around like this?”  
 
 There was no mirror to know he was on the right track.   
 
@@ -663,7 +649,7 @@ Another few punches. The timing was slightly better, but his fist still looked w
 
 And none of them were going straight to the invisible target in front of him.  
 
-*How do I know if this is right? Do I just have to feel it out?*  
+*How do I know if this is right? Do I just feel it out?*  
 
 He licked his dry lips and recalled the comforting taste of the egg sandwich he just ate.  
 
@@ -682,207 +668,6 @@ Another jab, this time with his left. It felt just a little closer to the target
 *Those were sandwiches she made hundreds – no, thousands of times.*  
 
 Two jabs with both. The numbers gained momentum as they became his only solace.  
-
 “3…4…”  
 
 *So I’ll do the same with these fists.*
-
-<br>
-<br>
-
-Gehenna continued to dance in and out of Victor’s range.  
-
-His swings grew faster and sharper with each passing second.  
-
-While she had only fought one battle today, he was fighting two.  
-
-The first was the battle against her.   
-
-The second was the battle against accumulated exhaustion from the previous duels.  
-
-For some reason, he had given himself little time to recuperate after each one.   
-
-The results had turned his brow into a waterfall of sweat mixed with ragged breaths.  
-
-*It’s impressive he’s still able to look alive after three bouts. But…*  
-
-Such vitality did not deter her path. She dashed another circle around him.  
-
-*It’s only a small matter of time until he loses his patience. That’s when I’ll strike.*  
-
-But the commander was not foolish enough to let that opportunity come easily.  
-
-He remained on the defense and kept his eyes concentrated on her footwork.  
-
-Then he briefly closed them and took a deep breath.  
-
-*Or he could do that\!*  
-
-Right as he was breathing, she threw another feint, forcing him to slash horizontally.  
-
-She rolled under the slash and got her blade close to his neck–  
-
-**WHAM.**  
-
-The slash was a feint. He had whacked the butt of the blade into her chest, forcing her to stagger back.   
-
-On instinct, she backed away further before Victor could draw the blade to her neck.  
-
-“Augh, so close\!” shouted Pendra.  
-
-“Don’t give up, big sis\!\!” cheered Lily.  
-
-The support was enough to get her head back into the fight.  
-
-She got her footing back together before getting her stance back.  
-
-“Not good enough. You’ll need to find a better advantage than that.”  
-
-*Yes, I got too greedy there. Seems he holds more patience than I thought.*   
-
-Her steps regained their usual speed as she charged in.  
-
-*More for him to lose, then.*
-
-<br>
-<br>
-
-At the highest point in Ashwright, Gerwyn wielded his new weapon.  
-
-“121…122…123…”  
-
-*Kick off, punch, retract. Kick off, punch, retract.*
-
-<br>
-<br>
-
-“He’s deteriorating.” Mercer muttered.  
-
-“You talking about Vic?” asked Pendra.  
-
-“Who else, *dumbass*?”
-
-<br>
-<br>
-
-The world that bustled from below the tower began to fade.  
-
-“128…129…130…”  
-
-*Kick off, punch, retract. Kick off, punch, retract.*
-
-<br>
-<br>
-
-“Well, what makes you say that?” Pendra inquired, unfazed by Mercer’s scathing tone. “Is it ‘cuz you wanted him to fight back some more when choking him out earlier?”  
-
-“Not even that. The bastard thinks that since he’s the oh-so-special-commander-set-to-rule, he now has the power to fight us all without a proper break. That rock of a skull he’s got wouldn’t understand pacing even if it slammed him across the head.”
-
-<br>
-<br>
-
-The sun that advanced from above the tower began to fade.  
-
-“140…141…142…”  
-
-*Can’t forget how to shift my weight. Kick off, punch, retract.*
-
-<br>
-<br>
-
-“Well…he was serious enough to go all out when it was me and him earlier, and he has been sweating and panting a lot right now.” Lily added. “For once, you’re right, Mercer. Victor’s pushing himself harder than ever, so we need to give him some support once this match ends.”
-
-<br>
-<br>
-
-The doubts of learning the technique began to fade.  
-
-“156…157…158…159…”  
-
-*Kick off, punch, retract. Kick off, punch, retract.* 
-
-<br>
-<br>
-
-“It’s a better observation than anything you’ll ever amount to, *you spoiled accident*.” Mercer retorted with a sharp elbow to her shoulder. “The sooner one of them passes out or breaks a bone, the better–.”   
-
-“Alright, that is it\!\!” she shouted. “You better be ready for the next round, Mercer\!\! I’m gonna teach you a lesson once and for all\!\!”  
-
-“You’ll put me to sleep ten seconds into class, *accident.*”
-
-<br>
-<br>
-
-The shadowy mire Georg left behind began to fade.  
-
-“175…176…177…178…”  
-
-*Can’t lose this rhythm now. Kick off, punch, retract.* 
-
-<br>
-<br>
-
-“Why, you–\!\!”  
-
-“Okay, okay, settle down, *girlies*.” Pendra said while restraining Lily with mock-calm. “Just ‘cause you’re both on *that time* of the cycle again doesn’t mean you’re allowed to be at each other’s–”  
-
-“Ugh, shut up, Penny\! Never say that again, you’re disgusting\! And you’re next after I’m done with–”   
-
-“You won’t be fighting either of them.” Nadis interjected, slicing through the conversation like a silent knife through butter. 
-
-<br>
-<br>
-
-The thousand wounds inflicted by *It* began to fade.  
-
-“190…191…192…193…”  
-
-*I need to aim higher than this. Kick off, punch, retract.*
-
-<br>
-<br>
-
-“And why's that?” Lily tilted her head.  
-
-“I’m going to take you on while Victor rests.” Nadis replied while flexing her right hand into a fist. Sparks of blue electricity charged and surged around her fingers.  
-
-“Ho-hoh, better be careful, Lily. The second Ashwright’s out for your blood now.” Pendra commented with intrigue.
-
-<br>
-<br>
-
-The crumbling stairs he had walked through to get here began to fade.  
-
-“208…209…210…211…”  
-
-*I’ll engrave the jab into my arms.* 
-
-<br>
-<br>
-
-“And what did I do to deserve that\!?” the prodigy exclaimed with a tinge of frustration.  
-
-“Don’t take it so personally. That’s a bad habit of yours.” said Nadis as she unclenched her fist and charged more sparks. “I noted your lack of perception last night, but it seems you still need a more…*direct lesson* on how it works.”
-
-<br>
-<br>
-
-The memories of his visit here yesterday began to fade.  
-
-“217…218…219…220…”  
-
-*And I’ll use the snap…*
-
-<br>
-<br>
-
-“Wha–\!? I know how to do perception, Nadis\! People say I’ve got a sharp head\!”  
-
-“Then consider this a chance…”
-
-<br>
-<br>
-
-Gerwyn and Nadis unintentionally spoke the same idea.  
-
-“To *become sharper*.”
