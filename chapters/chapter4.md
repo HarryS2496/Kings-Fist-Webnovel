@@ -2,21 +2,17 @@
 
 **THUMP.**  
 
-Gerwyn’s entire body was petrified by the tall figure before him.   
+Gerwyn petrified at the tall figure before him.   
 
-Even in broad daylight, Georg’s shadow exposed no humanity.  
-
-The polite smile held no warmth. Another masquerade.  
+Georg’s shadow exposed no humanity in broad daylight.  
 
 To face him here was an unexpected trial confirming the worst of his fears.  
 
 *Why are you–*  
 
-“You’re likely wondering why I’m here, right? Well…” he scratched his chin to search for the answer to a question unsaid. “Part of it’s because your twin sister had to lump me in the same camp as our *commander* the other day. I guess my Ashwright blood couldn’t let that stand for long.”   
+“You’re likely wondering why I’m here, right? Well…” Still smiling, he scratched his chin. “Your twin sister had to lump me in the same camp as our *commander* the other day. Perhaps my Ashwright blood couldn’t let that stand for long.”   
 
 **THUMP.**  
-
-Slight irritation serrated in his voice as he mentioned Victor indirectly.  
 
 Gerwyn suddenly recalled Gehenna’s words at yesterday’s dinner.  
 
@@ -100,7 +96,7 @@ His knees fell to the floor, finally unable to handle the overwhelming pressure.
 
 Georg took the silence as an opportunity to turn around and look back at the horizon. He shut his eyes as he slicked back his hair as black as midnight and adjusted his gloves.  
 
-“Hmm…you don’t know, eh? Well…that’s fine for now. You’re still far too young to know all the answers yet, but at least you’re making an effort outside that library.”   
+“Hmm…unsure, eh? That’s fine for now. You're still too young to know all the answers yet, but effort always counts for what it is.”   
 
 He stepped onto the brick rail and turned back to face Gerwyn again.   
 
@@ -110,7 +106,7 @@ Another chilling wind struck the two brothers, then it enveloped the eldest like
 
 The long shadow below him began to distort and shrink.  
 
-“I’d love to chat longer, since we’ve got more catching up to do. But…business beckons.”  
+“I’d love to chat longer, but…business beckons.”  
 
 He gave a two-finger gesture and hopped off the rail.  
 
