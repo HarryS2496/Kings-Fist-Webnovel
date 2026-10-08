@@ -686,11 +686,11 @@ Mercer did not answer. His attention was outside the carriage’s window, a one 
 
 “Lord Mercer.” the experienced soldier declared. “Do you–”  
 
-“Yeah, yeah, I got the conditions already.” Mercer shut down the stoic soldier. “Seven months in those mountains; once I start up, I can't go back down to your post below; and I gotta make camp myself. That’s basic survival instructions, not some ceremony you’d need a long sermon for.”  
+“Yeah, yeah, I got the conditions already.” Mercer shut down the stoic soldier. “Seven months in those mountains; once it starts, I can't go back down to your post below; and I gotta make camp myself. That’s basic survival, not some ceremony you’d need a long sermon for.”  
 
-“Yet you forget one line in the verse,” said the calm veteran.  
+“You forget one line in the verse,” said the calm veteran.  
 
-“Gods, a verse, he says,” Mercer scoffed. “What, do you speak of the part where if I dare disobey or try to break free, the consequences will be dire? That’s the first thing a toddler learns about law as a construct. While we’re at it, remind me to tell the heavens that the tide goes in before it goes out.”  
+“A verse, he says,” Mercer scoffed. “What, do you speak of the part where if I dare disobey or try to break free, the consequences will be dire? That’s the first thing a toddler learns about law as a construct. While we’re at it, remind me to tell the heavens that the tide goes in before it goes out.”  
 
 The new recruit silently glared at the captive, but the experienced soldier held him back gently. Through the silent message of a shaking head, he made sure to get across that the prince across the carriage from them was a lost cause.  
 
@@ -716,7 +716,7 @@ Mercer put a hand to his face, still smeared in the blood from his delusion, and
 
 “Ah, so he has finally arrived.” The receptionist was a young girl with brown hair in a ponytail and light Ashwright-grade armor of leather and steel. She greeted the three with a beaming smile and pulled out a paper from her desk. Here, have a seat and we’ll…”  
 
-Mercer shoved both of the guards to the side and startled her by closing the distance. “Yeah, yeah, you must be new here, I’ve done this already.” He snatched the papers and oakwood pen from her right hand. “‘First, you will spend an unspecified amount of days in our local dungeon while we pick our noses, getting your history together for no reason whatsoever. Then you will be taken to the Highlands where you are expected to survive and form your own lodgings to repent for your sins soaked in human blood. Please sign your name in these five places so we can inscribe into the records another guttersnipe to be fed to the bears above.’ That’s what you’re gonna regurgitate from this waste of tree fiber.” He mocked her formal tone while furiously scribbling multiple signatures into the contract’s pages.  
+Mercer shoved both of the guards to the side and startled her by closing the distance. “Yeah, yeah, you must be new here, I’ve done this already.” He snatched the papers and oakwood pen from her right hand, then furiously scribbled multiple signatures into the contract’s pages.
 
 The receptionist immediately dropped her smile and stood up to protest. “Hey–\!”  
 
@@ -734,7 +734,7 @@ He picked up the chair on his right, swung around clockwise, and slammed the sol
 
 Before the three soldiers could get themselves back together, Mercer quickly walked over to a giant chest of steel on the far right end of the cabin and kicked it open. It contained the necessary starting provisions and tools for camping out in harsh snow in satchels neatly lined up.  
 
-While the other two tried to get their bearings together, the experienced soldier in question got up and stepped forward to confront him. “So you claim to understand our rules, yet act upon this foolishness anyway. Do not make this harder for all of us, Lord–”  
+While the other two tried to get their bearings together, the experienced soldier in question stepped forward to confront him. “Do not make this harder for all of us, Lord–”  
 
 “I’m making your job *easier.* Get out of the way.” Mercer kicked open another large chest and grabbed a long, bundled chain whip with a morning star. Feeling its heavy weight and deceptively reliable length in his left hand, it felt like a weapon Mercer’s bloodstained hands had waited to grasp for all the years he had drawn breath. The whip became loosely latched onto the belt, ready for later use.  
 
