@@ -8,15 +8,17 @@ A frigid breeze passed through him as he opened and closed the rustic door. The 
 
 The balcony’s stone was soaked; the spring season had come to melt the snow away.   
 
-Yet the winds chilled.  
+Yet the winds chilled..  
 
 He put his right hand on the chest and took a deep breath.  
 
 *The edge here is 15 steps away.*  
 
-He looked to the left at the sunset beyond the horizon, seeing the deepening blue closing in, giving way to the night. It gave him some peace of mind with every step, preferring not to focus on the sun that shone.  
+He looked to the left at the sunset beyond the horizon. The deepening blue closed in, giving way to the night. It gave him some peace of mind with every step, preferring not to focus on the sun that shone.  
 
-His eyes looked around the kingdom he knew all too well: Ashwright.  
+Then his sight averted around the kingdom he knew all too well.   
+
+Ashwright.  
 
 *9 more steps…*  
 
@@ -28,31 +30,27 @@ To any outsider, this land was no easy place to traverse to, but it gave warm we
 
 Though it was home to its own unique delicacies, the most delectable one among its people was the camaraderie forged from hardship and strength. He had watched as warmth collided with frost as friends and family alike stood together in harmony.   
 
-To the civilians – the Ashfolk – born here, it was a cherished bonfire to rest and rejuvenate the spirit.   
+To the Ashfolk, a cherished bonfire let them rejuvenate the spirit.   
 
 *2 more steps.*   
 
-To Gerwyn, it was only frost.  
+To Gerwyn, there was frost.  
 
-His eyes lowered to what was below him.  
+His eyes lowered to the sight below.  
 
 A road of cobblestone, walked upon by no one in sight. Hours ago, it had been bustling with people going in and out of markets and vendors, but no one dared to come nearby when night began to fall near this tower. A few trees lined the road, withered by ashen snow beginning to melt. Steel entrances and gates stood undeterred, laced by frost and dripping water.   
 
 *If I take 2 more steps here…*  
 
-Despite its age, this tower was still one of the tallest buildings in Ashwright.   
+Despite its age, this tower was one of the tallest buildings in Ashwright.   
 
 *I can end this*.  
 
-He knew that his remains would be unrecognizable if he fell from here.  
-
-He raised his right foot.  
+The remains would be unrecognizable. He raised his right foot.  
 
 **THUMP.**  
 
-His heart gave a violent kick, then became still for a moment.  
-
-It was enough to make him stagger back.  
+His heart gave a violent kick, then became still for a moment, staggering him back.  
 
 His legs trembled.  
 
@@ -62,9 +60,7 @@ His mind commanded to raise his right foot again.
 
 **THUMP.**  
 
-But his body did not listen.  
-
-Nausea invaded the stomach.  
+But his body did not listen. Nausea invaded the stomach.  
 
 *Why…can’t I move?*  
 
@@ -72,9 +68,7 @@ Another command from the mind.
 
 **THUMP.**  
 
-No movement from the body.  
-
-His vision began to blur.  
+No movement from the body. His vision began to blur.  
 
 *I…I can’t do it. I can’t even bring myself to escape.*  
 
@@ -90,11 +84,11 @@ Tears silently fell as his left hand clutched the balcony rail.
 
 *I can’t even bring myself…to die.*  
 
-The only response the world gave him was another gust of the chills.  
+	The only response the world gave him was another gust of the chills.  
 
-Silence.  
+	Silence.  
 
-He looked to his left at the sunset again.   
+He looked to the left at the sunset again.   
 
 This time, he looked at the sun. It bled a red orange as it sunk further into the night.   
 
@@ -123,7 +117,7 @@ But he still lived, and his heart still pulsed.
 <br>
 <br>
 
-The descent from the tower was heavier than the ascent.  
+The descent from the tower proved heavier than the ascent.  
 
 His legs did not shake when he climbed the short steps to the balcony.   
 
@@ -208,7 +202,7 @@ He shook his head.
 
 “Ah, I see. Do not worry then, she will be informed of the reunion too. You should make your way over there soon; our majesty expects every child of his to attend this time.”  
 
-He nodded. As they looked back up at him, he saw *it* in their eyes for a brief moment.  
+He nodded. As they looked back up at him, he saw *It* in their eyes for a brief moment.  
 
 *It* made him flinch and step back.   
 
@@ -216,21 +210,15 @@ Regaining his composure, he continued to walk down the hall, gaze lowered to the
 
 He overheard muttering from Zinzolin that was quickly silenced by a shush from Jadeqen, but did not catch the details of what they said.   
 
-His exhausted mind did not bother to piece together why Georg would suddenly come back here after five years of deafening silence.  
-
-There was no need to.  
+His exhausted mind did not bother to piece together why Georg would suddenly come back here after five years of deafening silence. There was no need to.  
 
 His legs instinctively took a left, but he forced them to turn right, toward the dining room.  
 
-Retreating to his chambers was obviously not an option here.  
-
-This was an uncommon instance where he’d be at the dining table with his entire family.  
+Retreating from this uncommon instance to his chambers was not an option.  
 
 *It shouldn’t appear as long as I don’t speak.*  
 
-He arrived at the metal door guarding the dining room, legs still weary.  
-
-The steel chilled his hand as it hovered over the knob.  
+He arrived at the metal door guarding the dining room, legs still weary. The steel chilled his hand while it hovered over the knob.  
 
 *It shouldn’t appear as long as I don’t feel.*  
 
@@ -270,11 +258,11 @@ Lily, the Prodigy. She imitated Victor’s stern posture, chin raised a bit too 
 
 Mercer, the Fury. He impatiently tapped a finger on the table and grumbled something unintelligible when Gerwyn sat down.   
 
-Pendra, the Joker. He slouched in his chair, one hand supporting the face while another fiddled with a spoon. It was clear from his expression alone that he had been dying of boredom in his seat for a while now.   
+Pendra, the Jester. He slouched in his chair, one hand supporting the face while another fiddled with a spoon. It was clear from his expression alone that he had been dying of boredom in his seat for a while now.   
 
 Not long after Gerwyn got comfortable, the silence broke.  
 
-“Damn, what’s with this table right now?” Pendra said with some incredulousness. “Here we are, getting ready to have dinner as a family, yet you’ve all been scowling like it’s a funeral. Don’t you think that’s the opposite of a warm welcome to our oldest brother while he’s telling us his stories?”   
+“Damn, what’s with you all?” Pendra said, incredulous. “Here we are, getting ready to have dinner as a family, yet you’ve all been scowling like it’s a funeral. Don’t you think that’s the opposite of a warm welcome to our oldest brother while he’s telling us his stories?”   
 
 “Ah, you understand it well, Pendra.” Georg smoothly responded as he adjusted his slicked back hair. “I feel rather hurt right now, Father. The first of the new generation of Ashwrights comes back after a long journey of soul-searching, and *this* is the kind of family reunion I’m given? I see some things around here haven’t changed a bit.”  
 
@@ -306,13 +294,13 @@ Lily was flustered for a moment, then snapped back. “Hey, watch your tongue th
 
 She withdrew the statement, but her face carried a defiant pout.  
 
-Mercer exhaled, then continued. “And I do apologize, Mother. It’s just…*difficult* to keep it together. Here we are at this table, with our famed commander and these 2 brats next to my ears talking up a storm about some brainless nonsense. Meanwhile, the rest of us are forced to wait because some *crippled wretch* and a *conniving harlot* love taking their sweet time before–”  
+Mercer exhaled, then continued. “And I do apologize…*Mother*. Here we are at this table, with our famed commander and these 2 brats next to my ears talking up a storm about some brainless nonsense. Meanwhile, the rest of us are forced to wait because some *crippled wretch* and a *conniving harlot* love taking their sweet time before–”  
 
 “*Mercer*.” The dim candles nearly froze as Beatrice spoke.   
 
 Gerwyn did not wince.   
 
-He knew who Mercer was talking about. 
+He knew who Mercer was talking about.  
 
 Everyone else did, but such things were left unsaid.  
 
@@ -322,7 +310,7 @@ Pendra resumed the conversation before the atmosphere could fully freeze over.
 
 Mercer turned to him with a fierce scowl while breaking his grasp away. “You are *this* close to–”  
 
-“–Close to *absolutely nothing*.” spoke a poised voice as the door opened.   
+“–Close to *absolutely nothing*.” spoke a poised voice right as the door opened.   
 
 It was Gehenna.   
 
@@ -376,29 +364,31 @@ Victor opened his mouth to speak, but then immediately shut it.
 
 Sherman continued, his words short and succinct.   
 
-“We are here as a reminder that we are bound by blood.   
-
-Hard times loom over this kingdom…no thanks to our rivals.  
+“This is a reminder that we are bound by blood.   
 
 Lambda…Bastionne…Fulmen…Xaede…Yomi.   
 
-They grow stronger. Smarter.   
+Peace may last now…but no thanks to these five, misery looms in the future.  
 
-Our relations with Lambda and Xaede are still in jeopardy.”  
+Lambda stands defeated now, but their fury will reignite, with Fulmen the torch.”  
 
-The girl in the abandoned lot flashed back in Gerwyn’s mind.  
+Though none save her twin could sense it, Gehenna’s eyes twitched at the latter name.  
+
+“Yomi and Bastionne rise, perhaps against us.  
+
+Our relations with Xaede still lie in jeopardy.”  
+
+The girl in the abandoned lot flashed back in the prince’s mind.  
 
 *Shen…*  
 
-“Our people become unsure of us, both in this kingdom and in neighboring lands.  
-
-Therefore…we must sharpen ourselves even more.  
+Therefore, in this new age, we must sharpen ourselves further.  
 
 We must stand united, as Ashwright’s greatest weapons.  
 
-We must prove to them why our name is etched in the annals of history.”  
+We must prove our legacy to the annals of history.”  
 
-After a brief pause, Beatrice continued.  
+After a brief pause, Beatrice continued in his stead.  
 
 “Savor this supper, for greater trials await afterwards.  
 
@@ -418,14 +408,13 @@ He knew from firsthand experience that in this far-from-average household, this 
 
 Sherman snapped his fingers.   
 
-“Servants. It is time.”  
+“Servants.”  
 
 Four maids came with the main dishes for the night: a magnificent ham glistening with oil and sauce and draped in an assortment of vegetables. To the sides: a golden-crusted blueberry pie, and a whole fried fish so fresh it still held a faint scent of sea air. The food was portioned out methodically for everyone at the table.  
 
 The smell of the fish immediately brought a glint of excitement to Lily.  
 
-“We must stand united, eh? Well now, that’s rather unlike you, Father.” Georg said lightly while taking a piece out of his pie slice. “Do you hear that, Victor? Your sermons are getting so stale, even Father is desperate for a more interesting conversation. Speaking of which
-...”  
+“We must stand united, eh? Well, how very *like* you, Father.” said Georg before taking a piece out of his pie slice. “Hear that, Victor? Your sermons grow so stale, Father exposits, desperate for an interesting conversation. Speaking of which…”  
 
 He looked at the table’s farthest seat away from him.  
 
