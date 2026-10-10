@@ -237,7 +237,7 @@ After the prodigy bolted out the door, Gehenna sighed with exasperation. “Oh, 
 
 She adjusted her hair and looked back at the table with a smile and a bow. “Have a pleasant rest of your night, you three. And welcome back to Ashwright, Georg.”  
 
-Georg smiled back. “Why thank you, Gehenna. It is good to be back.”  
+Georg smiled back. “Why, thank you, Gehenna. It is good to be back.”  
 
 Soon, she too had left.  
 
@@ -253,7 +253,7 @@ Georg knocked back his glass of wine in one gulp, exhaling a refreshed breath.
 
 Though his cheeks gained a rose tint, he did not stagger.   
 
-“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? That little brother turned his magic into something real special. I’ve read about the theory: using both wind and earth to predict movement, but never thought one of our own would try and master it.”  
+“Lily's fighting style is the spitting image of our father, Mercer’s gotten more beastly, and Pendra? An especially interesting case, that one. Using wind and earth is a Xaedean tactic; I never thought one of our own would try it without even knowing how Xaede crafted that bit of magic theory.”
 
 Victor nodded. “It is unorthodox for Ashwright’s warriors, but in this day and age, we need versatility in might. Proper discipline will set those three on the right path. Gehenna lags behind; I will not permit her to drift further.”  
 
@@ -265,7 +265,8 @@ Victor nodded. “It is unorthodox for Ashwright’s warriors, but in this day a
 
 “Hey hey, I’m not mistaking anything here. It just so happens that there’s an open book in front of me, and the pages are written in fine ink.”  
 
-The two brothers gazed at each other.   
+The two brothers gazed at each other.  
+
 The unsheathed stare that pierced versus the sheathed stare that shattered.  
 
 Another bout of silence.   
@@ -273,8 +274,6 @@ Another bout of silence.
 Nadis poured more water into her cup, then Victor’s.  
 
 He drank it all down and slammed the cup onto the table, careful not to break it.  
-
-*Again, this isn’t a council. It’s just us.*  
 
 “More importantly…” Victor exhaled. “Georg.”  
 
@@ -300,11 +299,11 @@ Every second of silence felt more agonizing than the last.
 
 “And I fail to see the logic behind such conjecture.” Georg sighed along. “I’m born tall, I came here yesterday, and…that’s enough to be deemed a suspect? All I did was grace this castle with my presence; it isn’t my fault the well-endowed maids here suddenly went into heat. I know not of a spell or cologne that could do such a thing.”  
 
-Victor slammed a fist onto the table, struggling to handle his cheeks getting redder with each second. “Numerous *hip aches* have been reported here, brother\! This needs to be taken care of before our entire staff ends up crippled f-from…from fornication\!”  
+Victor slammed a fist onto the table, struggling to handle his cheeks getting redder with each second. “Numerous *hip aches* have been reported, brother\! This needs to be taken care of before our entire staff ends up crippled f-from…from fornication\!”  
 
 “Alas, ‘*crippled from fornication*’; what a tragic fate for our kingdom.” Georg drawled as he poured more wine into his glass. “Gods forbid a man and a woman try to handle each other’s backed-up needs while off duty.”  
 
-After one gulp out of the glass, he subtly gestured at Victor.  
+After one gulp out of the glass, he subtly gestured at Victor. 
 
 “Listen well, little brother. Whoever this rumored ‘tall man’ is, he understands common courtesy when it comes to satisfying a lady: *break* her ass until her legs forget their purpose and her eyes see the heavens. One day, you’ll understand when you travel around Axiom and finally find *yours*.”  
 
@@ -332,15 +331,15 @@ Victor subtly shifted his chair back in embarrassment.
 
 Georg remained unfazed; he continued to sip more wine.  
 
-“Ah…so it’s not just men, then; you’ve made *women* see the heavens too. No wonder you’ve got such a quiet confidence; people of your ilk always have quite the tastes.”   
+“Ah, right; you’ve made *women* see the heavens too. Sometimes I forget the source of your quiet confidence; people of your ilk have immaculate taste.” 
 
 He opened his eyes and widened his grin.   
 
-“Next time, invite me to them. I’d love to learn more about these ‘*nuances*’.”  
+“You still keep *Elly* and her entourage close, right? While we’re at it, invite me along. I’d love to learn more about these ‘*nuances*’ from them.”  
 
 She saw those eyes enough times to stare back.  
 
-*I don’t think I will, sycophant.*  
+*I don't think I will, sycophant.*
 
 Far worse had shattered her before.  
 
@@ -711,10 +710,10 @@ Her hands, slightly trembling, wrapped the cloth around it and put it in a side 
 
 *If I knew something this bizarre would happen, I would have sat around him instead of next to Father and Victor. It was to command no attention, but I couldn’t see what he saw at the table.*  
 
-She looked through a window and up at the half-moon, seeking an answer in its light.  
+She looked through a window and up at the half-moon.  
 
-*What did you leave behind on that watchtower, Gerwyn?*  
+*Seldom have I spoken to that boy, or thought of that profaned sight of days past, but…*  
 
-Apprehension became curiosity.  
+That view of that watchtower gleamed in its light, and apprehension became curiosity.  
 
-*And what followed you back down?*
+*What did you see on that apex, Gerwyn?*
