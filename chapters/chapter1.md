@@ -84,9 +84,9 @@ Tears silently fell as his left hand clutched the balcony rail.
 
 *I can’t even bring myself…to die.*  
 
-	The only response the world gave him was another gust of the chills.  
+The only response the world gave him was another gust of the chills.  
 
-	Silence.  
+Silence.  
 
 He looked to the left at the sunset again.   
 
