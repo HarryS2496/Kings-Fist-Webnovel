@@ -236,13 +236,11 @@ And his mother, whose elegance and disposition could freeze without a spell.
 
 *It* flashed in her eyes.  
 
-Gerwyn did not flinch this time, but he stood for a moment before slowly walking to his seat at the table. It was at the bottom end of the left side – close enough to the door, far enough not to be noticed.  
+Gerwyn did not flinch this time, but he stood for a moment before slowly walking to his seat at the table, located at the bottom end of the left side. Close enough to the door, far enough not to be noticed.  
 
-Plopping onto the chair, he finally gave his legs a chance to rest.  
+Plopping onto the chair, his legs savored a chance to rest.  
 
-A quick scan of the table confirmed the presence of nearly every sibling.  
-
-Each one had a designated nickname in his mind.  
+A quick scan of the table confirmed the presence of nearly every sibling. Each one had a designated nickname in his mind.  
 
 On his side were Nadis, Victor, and an empty seat to his left.   
 
