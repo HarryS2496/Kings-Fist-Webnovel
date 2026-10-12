@@ -354,9 +354,7 @@ The king’s deep voice cut him off.
 
 We are bound by blood.   
 
-There is a time for lectures, and it is not at this table.   
-
-It is at the training grounds instead.”  
+There is a time for lectures. It is for academia, not this table.”  
 
 Victor opened his mouth to speak, but then immediately shut it.   
 
