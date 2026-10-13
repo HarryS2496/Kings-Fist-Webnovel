@@ -583,7 +583,7 @@ This specific peace we assisted in uncovering…it was never about joining hones
 
 Each word from Icarr’s recounting felt like a rotting poison boring itself into Shenael’s gut. Knowing the sting of his words, he stopped himself and took another sip of his tea.   
 
-*Entertainment…? Shit, I never would have guessed. Of course the Ashfolk would rebel against something that corrupt. …Calm down, Shenael Lunendra, just breathe. He still has more to tell.*  
+*He and the Ashfolk have every reason to rebel against something that corrupt. Calm down, Shenael Lunendra, just breathe. He still has more to tell.*  
 
 With a gesture and a nod, she urged him to continue. And so Icarr did.  
 
@@ -592,8 +592,6 @@ The point is this; his campaign was founded by reason, and not one of pure delus
 Hatred is a *wildfire*, Lady Shenael. A *diseased wildfire*. No matter how founded or justified it may be…no matter how well contained it may look in a cage, it consumes and devours all in its path; it stops at naught until all has reduced to dust. We of Xaede are but bystanders in the onslaught of two ambitious infernos, burning the brightest I’ve seen in all the years I’ve lived on this soil blessed by Erde Tierkreis. To remain neutral as they burn the skies above and earth below…can only get us so far.”  
 
 Shenael did not dare comment on this grave lesson in history; to do so was to waste the air that grew heavier with each second.
-
-*If the King of Ashwright was strong enough to beat an Apostle of War like Sage Icarr and shake him like this, then…*
 
 “Well, such is a ruler’s creed.” Icarr attempted to relax himself with a long breath. “Discerning the least painful toxins to ingest is a skill required in any position of command. Ashwright may be the lesser poison, but it is a poison nonetheless. The Ashfolk are an odd lot; somehow, after years of a prosperous alliance between the North’s two strongest, they indulge in a mixed perception of us elvenkind."  
 
@@ -725,37 +723,37 @@ Shenael nearly grinned at Crideas’s praise, but uncertainty crept at her. “T
 Shenael had almost finished her meal by this point, so she put down her fork, wiped her mouth, and folded her hands out of a desire to contemplate.   
 
 “I guess it’s because…that time I spent in Ashwright as a kid just isn’t something I can forget about that easily. I’ve been having all these dreams where I relive fragments of those memories for a while now, and all this talk of them and Lambda likely getting into another war…*ergh*. Even after that whole history lesson I asked from Master Icarr about who King Sherman was before he rose to power, my head’s spinning from the whole slew of pros and cons to consider.  
-It’s not like I’m willing to accept Ashwright with open arms or anything. Master Icarr said it himself, we’re standing between two wildfires hellbent on consuming each other, and this is about deciding which of the two will burn us less in the long run. Or, as he called it, picking the least dangerous poison.”  
+It’s not like I’m willing to accept Ashwright with open arms or anything. I don’t doubt Lambda’s prejudices, either, but I haven’t seen what that’s like personally, either.Master Icarr said it himself, this is about picking the least dangerous poison in the end. I guess in the end, I don’t understand what’s in each of the poisons.”  
 
-Crideas nodded in agreement and folded his arms. “Did Icarr also tell you about why Sherman committed patricide and usurped the throne?”  
+Crideas nodded in agreement and folded his arms. “In all fairness, the poison of a nation is perhaps volatile like little else in the world. Did Icarr also tell you about why Sherman committed patricide and usurped the throne?”  
 
 “Without an omission to detail, yes.” she said mournfully.  
 
-“...I see.”  
+“…I see.”  
 
 As the table grew silent in the sorrow, Shenael continued to speak.  
 
-“The cons and dangers that will come from us siding with Ashwright again are plain to see in that wildfire, yet I still can’t help but feel drawn to it. I mean…I used to know the people there. A friend I treasured better than anyone else is still there.”  
+“The cons and dangers that will come from us siding with Ashwright again are plain to see in that wildfire, I know that much. Yet, I still feel drawn to it; I used to be there. That's enough to feel something, right?”  
 
-“Gerwyn Ashwright, the fifth of Sherman’s heirs.” answered Crideas.  
+“If I may guess, this doubt relates to the likes of Prince Gerwyn Ashwright, correct?” asked Crideas.
 
-Shenael felt taken aback by how brisk her father’s declaration was.  
+Shenael was taken aback by how suddenly he hit the nail on the head.  
 
-*Is it that obvious now?*  
+*Is it that obvious? What gave it away?*  
 
-“Yeah…look, I know I can’t let *his* existence get in the way of a political judgement here and all–”  
+“…Listen, I know I can’t let *his* existence get in the way of a political judgement here and all–”  
 
-“And I mean not to judge,” Crideas reassured. “Though personal attachments must be separate from the Nexus, it is not wrong to have them regardless. And to be honest…Kathenael and I have thought long about it too.”  
+“And I mean not to judge,” Crideas reassured. “Though personal attachments must be separate from the Nexus, it is not wrong to have them regardless. Kathenael and I have thought long about it too.”  
 
-“Neither of us got to thank that boy Gerwyn for helping you for all those years; he was a brilliant child.” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited. And I miss Beatrice almost as much as your father here misses Sherman.”   
+“Neither of us got to thank that boy for helping you for all those years; he was a brilliant child.” Kathenael pondered. “In spite of it all, the younger commonfolk were kind to us for a time when we visited. And I miss Beatrice almost as much as your father here misses Sherman.”   
 
 *Oh boy, here we go again.*  
 
-“And that’s where you’re wrong; I *don’t* miss that bastard.” Crideas denied with vehemence.  
+“And that’s where you’re wrong; I *don’t* miss that bastard.” Crideas vehemently denied.  
 
-Rueltabre grinned before adding fuel to the fire. “No need to deny it, my son, you two were the best of friends for quite a time. Kath here used to worry herself sick about my son and my former pupil talking into the night; she thought a case of infidelity ran–”  
+Rueltabre grinned before adding fuel to the fire. “No need to deny it, my son, you two were the best of friends, too, for quite a time. Kath here used to worry herself sick about you, he, and Icarr talking into the night; she thought a case of infidelity ran–”  
 
-“Rueltabre\! That’s…uh, not entirely true\!” protested a flustered Kathenael. “I was just worried they’d starve themselves sick talking day and night\!”  
+“Rueltabre\! That’s…uh, not entirely true\!” protested a flustered Kathenael. “I was just worried they’d starve themselves out there\!”  
 
 “And what are the chances of that happening? Sherman’s not that talkative.”  
 
@@ -786,7 +784,9 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 “What the–\!? Hey, come on\!\! It wouldn’t be *that* long\! There’s just a lot of material to cover\!”  
 
-“And you do naught but stretch it into hours; we’re not getting to sleep if you start.” Crideas put a resigned hand to his forehead.  
+“And you do naught but stretch it into hours; we’re not getting to sleep if you start.” Crideas put a resigned hand to his forehead. “Or did you forget *that one time* you were asked to tell the story of me introducing you to Kath before the vows?”   
+
+*Oh gods. Still can’t forget how those two hours felt like two days.* 
 
 “Bah, this night is still a young one, boy; surely you could spare at least one tale?" A smug, wolfish grin began to spread across his face. "It might help keep little Shen’s dreams about her *human boyfriend* at bay.”  
 
@@ -804,13 +804,11 @@ A tinge of smoke burned off his thumb, so he blew it away.
 
 “Arrgh\!\! My handsome face\!\! Now no one will turn their heads for my charms\!” Rueltabre shouted while getting back up in one piece.  
 
-“Just go to bed already, old man.” commanded Crideas.  
+“Go to bed, old man.” commanded Crideas.  
 
-“Why, you *ungrateful little…*” The Elder Master gritted his teeth and his face reddened.  
+“Why, you *ungrateful little…*” The Elder Master gritted his teeth and his face reddened.   
 
-Shenael and Kathenael could not help but laugh together.  
-
-The laughter and chatter were the only sounds that kept the pitch black sky and shining stars busy and young in an otherwise quiet, secluded world.
+Shenael and Kathenael could not help but laugh together. Such cheer kept the pitch black sky and shining stars busy and young in an otherwise quiet, secluded world.
 
 <br>
 <br>
@@ -821,13 +819,13 @@ Upon finishing, she slumped back in her chair and let out an exhausted groan. Th
 
 *What a day.*   
 
-Perhaps it was serenity, strewn from fleeting memories of both the distant past and earlier today that kept her awake.  
+Perhaps it was serenity, strewn from the now in the abode and the distant past that kept her awake.  
 
-Perhaps it was uncertainty, a vivid, ominous mural painted through the knowledge and awareness gained from both the Nexus and Icarr.  
+Perhaps it was uncertainty, a vivid, ominous mural painted through the knowledge and awareness of the Nexus and Icarr's words.  
 
 Perhaps it was that in this quiet home where she spent her days, the need to understand the dangers across the rest of Axiom took hold of her pondering.  
 
-*It’s not just Talon VI or Xaede. Back then, I hoped for a reason to travel, but rumors of these tensions hitting other powers in Axiom are coming around. If the possibility of war between those two kingdoms actually comes to a head, then…*  
+*It’s not just Talon VI or Xaede. Back then, I hoped for a reason to travel, but now the possibility of war between those two kingdoms grows stronger with every passing day. All I can do is prepare for that wildfire.*  
 
 A thought of the distant kingdom higher in the North crossed her mind when she looked at the stars from the distant window.   
 
@@ -835,23 +833,3 @@ A thought of the distant kingdom higher in the North crossed her mind when she l
 
 <br>
 <br>
-
-<h3>750, 6th of Quadedre</h3>  
-	  
-“Urgh…ouch…”  
-
-Gerwyn woke up to another early morning, assaulted by a dull, cramping pain in his arms as he got up.  
-
-At first, everything felt worse than yesterday’s morning and the day before. A full night’s rest could only do so much to keep the lingering exhaustion of his muscles at bay.   
-
-*Has it been that long since I last pushed my arms this far?*  
-
-But what it had done was enough for him to push past the pain and prepare himself.  
-
-Upon parting the window curtains, the early dawn did not blind his eyes. The softened skies gradually washed away his cramps, gracing the Northern Kingdom of Ashwright with a fresher today.  
-
-Quietly invigorated, he went through a bath, clothing change, and breakfast before the majority of Ashwright awakened. Some early rising maids whispered about this out-of-character development, but concentration on what truly mattered blocked him from hearing the murmurs.   
-
-With a strengthened fist in one hand and a bag with well-wrapped provisions in the other, he walked straight out the castle's front door and set out for his new training ground once again.   
-
-*Time to throw another 4000 punches.*  
