@@ -794,7 +794,7 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 “Rueltabre\! That’s rude\!” Kathanael protested.   
 
-“What, am I wrong? Tell me I’m the only one who still remembers all those years ago when she’d go ‘Grandpa, grandpa\! You gotta hear about this thing ‘Jerry’ told me about–”  
+“What, am I wrong? Tell me I’m the only one who still remembers all those years ago when she’d go ‘Grandpa, grandpa\! You gotta hear about this thing ‘Jerry’ told me about–’”  
 
 **BLAM.**  
 
