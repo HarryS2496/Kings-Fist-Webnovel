@@ -8,7 +8,7 @@ A frigid breeze passed through him as he opened and closed the rustic door. The 
 
 The balcony’s stone was soaked; the spring season had come to melt the snow away.   
 
-Yet the winds chilled..  
+Yet the winds chilled.  
 
 He put his right hand on the chest and took a deep breath.  
 
@@ -96,23 +96,19 @@ Its flame had grown weaker, and it was on the verge of succumbing to nightfall.
 
 But something in its flame told him to get up.   
 
-In the world of frost he lived in, it was the only sign of warmth left.  
+In this world of frost, nothing else could shine.
 
-Much time had passed since he opened the door to this balcony.  
+Minutes in the guise of eons had passed since opening the door to the tower’s apex.  
 
-His legs had fallen asleep from kneeling too long.   
+He put both of his hands on the stone rail for support, legs slowly awakening. With a heavy heart, the door now stood in front of him.  
 
-He put both of his hands on the rail to support himself.   
+Gerwyn had ascended this tower to die. Now, he was descending this tower to live.  
 
-His legs slowly awakened. They wobbled out of grogginess, then became stable.  
+He wasn’t sure why, and couldn’t stand himself for it.   
 
-He turned away from the edge, and headed back to the rustic door.  
+**Thump.**  
 
-He had ascended this tower to die. Now, he was descending this tower to live.  
-
-He wasn’t sure why, and he couldn’t stand himself for it.  
-
-But he still lived, and his heart still pulsed.
+Yet the heart still pulsed.
 
 <br>
 <br>
@@ -121,19 +117,17 @@ The descent from the tower proved heavier than the ascent.
 
 His legs did not shake when he climbed the short steps to the balcony.   
 
-Now, they shook as he climbed down.  
-
-It showed the difference between his resolve to die and his resolve to live.  
+Now, they shook on the way down.   
 
 The resolve to die was a hardened ideal that left him unflinching in the face of the dilapidated architecture.  
 
 The resolve to live was a newborn thought that could only wonder how he managed to climb the hollow ruins in the first place.  
 
-He still didn’t understand why the thought kept him going.   
+Why the thought kept him going was unknown.
 
-When he finally reached the bottom, the blue night had taken over the sky.  
+The blue night had taken over the sky by the time he reached the bottom.  
 
-His legs were exhausted, yet they moved with little purpose.  
+Legs still exhausted, Gerwyn walked with scarce purpose.  
 
 He stared down at the cobblestone road as the tower became far.  
 
@@ -159,17 +153,17 @@ A girl with pointed ears, wearing a wolfish grin.
 
 A boy seen in the mirror for a time, looking at a book almost his size.  
 
-The winds embraced him as he blinked, clearing his vision.  
+The winds embraced him as he blinked.  
 
-The two children were gone, and the lot was empty.   
+Vision clear, the two children were gone, and the lot was empty.   
 
 The tree and grass of the past had vanished in the now. Only old cobblestone remained.  
 
-He looked back at what was in front of him. It was the Ashwright castle.  
+He looked back at what was in front of him. The castle at the center of this kingdom.  
 
-His legs resumed their journey, but the eyes did not stay on the road this time.  
+His legs resumed the journey, but the eyes did not stay on the road this time.  
 
-As the castle became closer, his chest tightened, and he uttered a name.  
+As the castle became closer, the chest tightened, and he uttered a name.  
 
 “Shen…”
 
@@ -378,11 +372,11 @@ The girl in the abandoned lot flashed back in the prince’s mind.
 
 *Shen…*  
 
-Therefore, in this new age, we must sharpen ourselves further.  
+"Therefore, in this new age, we must sharpen ourselves further.  
 
 We must stand united, as Ashwright’s greatest weapons.  
 
-We must prove our legacy to the annals of history.”  
+We must carve our name's legacy, time eternal.”  
 
 After a brief pause, Beatrice continued in his stead.  
 
@@ -588,15 +582,15 @@ The sound cleared his vision. Somehow, it was unheard by everyone else at the ta
 
 Victor was continuing a point about why climbing the tower wasn’t safe while the rest of the table tried to shut him down. Gerwyn didn’t bother listening; his mind was focused on that sound.   
 
-He looked down and saw a metal fork he had held the entire time.  
+Looking down, a metal fork he had held the entire time was in his fist.  
 
 *When did I–*  
 
-He uncurled the fist.   
-
-The fork had been bent twice around the middle. It was slightly crushed.  
+So it uncurled.   
 
 *What the…?*  
+
+The fork had been bent twice around the middle. It was slightly crushed.
 
 A maid passing through to hand extra napkins had taken notice of what was in his right hand. Her eyes widened and she put a hand to her mouth in shock. She silently slipped him a spare fork in exchange for the broken one. He nodded slightly as a form of thanks, but caught her gaze as she bowed back.  
 
@@ -622,15 +616,13 @@ Sharp shivers spiked down his back at the sudden touch.
 
 “Gerwyn?” she asked, concerned. “You still haven’t said much, and you don’t look well. What’s wrong?”  
 
-He knew that she could see through him.   
-
-Beneath that concern – that mask, *It* still lurked in her eyes.   
+Beneath that mask, *It* still lurked in her eyes.   
 
 Gerwyn snapped his arm away from her grasp, much to her surprise.  
 
 “It’s nothing.” he mumbled.  
 
-He got up from his seat and walked to the door.  
+Quickly rising from his seat, he walked to the door.
 
 “Hey, wait, you’re done already?” Pendra called.  
 
