@@ -1,8 +1,8 @@
 <h3>750, 3rd of Quadedre</h3>
 
-Gerwyn Ashwright finally made it to the top of the old watchtower.   
+Gerwyn Ashwright finally made it to the top of the old watchtower. Not a soul had followed him here. 
 
-Not a guard, official, or soul had followed him here; this tower was a relic of old days no sane person wished to concern themselves with, lest they face the rumored spirits within.   
+This tower was a relic of old days no sane person wished to concern themselves with, lest they face the rumored spirits within.   
 
 A frigid breeze passed through him as he opened and closed the rustic door. The daunting flight of stairs was now behind him, and the balcony at the top was in front of him.  
 
