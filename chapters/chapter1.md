@@ -360,11 +360,9 @@ Lambda…Bastionne…Fulmen…Xaede…Yomi.
 
 Peace may last now…but no thanks to these five, misery looms in the future.  
 
-Lambda stands defeated now, but their fury will reignite, with Fulmen the torch.”  
+Lambda stands defeated now, but their fury will reignite, with Fulmen the torch.
 
-Though none save her twin could sense it, Gehenna’s eyes twitched at the latter name.  
-
-“Yomi and Bastionne rise, perhaps against us.  
+Yomi and Bastionne rise, perhaps against us.  
 
 Our relations with Xaede still lie in jeopardy.”  
 
