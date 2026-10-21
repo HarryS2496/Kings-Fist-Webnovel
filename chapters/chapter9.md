@@ -141,7 +141,7 @@ The pushups finally stopped, but the prisoner’s focus did not divert. He wiped
 
 Mercer mocked Pendra with a querulous, child-like tone. “‘*Maybe if you took those chances to prove yourself a better man*–’ with what, *damn it*\!?” He slammed a foot onto one of the bars. “You want me to pull the weeds out of his garden and lick the filth off everyone’s boots for a sliver of some good graces\!? Give me a break with the fairy tales\!”  
 
-“No, that’s not what I mean at all, and no, this doesn’t call for a break; you’re sending yourself to an early grave\!” Pendra reached the verge of exasperation. “I mean…the Highlands, brother\! Why pine for the Highlands? I’ve been there before on that trial of passage, and the whole test you gotta do to survive for two weeks is dangerous enough. You’re gonna be there for *seven* months\!”  
+“No, that’s not what I mean at all; you’re heading to an early grave\!” Pendra reached the verge of exasperation. “I mean…the Highlands, brother\! Why pine for the Highlands? I’ve been there before on that trial of passage, and the whole test you gotta do to survive for two weeks is dangerous enough. You'll be there for *seven* months\!”  
 
 “Yeah, so what?” Mercer let go of the bars, grabbed his towel, and moistened it with water.  
 
@@ -153,7 +153,7 @@ The thoughts latched on to his voice and flowed out through instinct. “Do you�
 
 “No, *dumbass*. I need to get stronger, and being here with the rest of you *Ashwrights* isn’t going to help that at all.”   
 
-“We’re constantly sparring with each other and being asked to defend ourselves in sticky scenarios. What about those?”  
+“There’s the constant spars and sticky situations we see out in the wilds. What about those?”  
 
 “What *about* those?”  
 
@@ -393,7 +393,7 @@ Victor calmed himself with an iron clenching of a fist, then went back to sharpe
 
 “The first princess, Qaine, carries a proper reputation backed by kindness and intellect. All Gerwyn needs to do is play the part of a good spouse to her.”  
 
-Georg shrugged in resignation. “There’s plenty to disagree with on your ‘plan’, but it’s a little too late in the night to be running circles. Of course, it all assumes Father and Mother will hear you out beforehand. Give it about…” Georg pondered for a rough moment. “*Three weeks.* Wait about three weeks, then tell them once they’re calm.”  
+Georg shrugged in resignation. “There’s plenty to disagree with on your ‘plan’, but it’s a little too late in the night to be running circles. Of course, it all assumes Father and Mother will hear you out beforehand. Give it about…*three weeks.* Three weeks, then tell them once they’re calm.”  
 
 Victor had finished whetting the blade and sheathed it back in time to look directly at the eldest brother again. “So the *rest of this month*? Georg, time is of the essence with–”  
 
@@ -405,7 +405,7 @@ The eldest glared, voice sharpened. “And thanks to your earlier *mistake*, you
 
 Victor, suspicious, furrowed his brow. “Ashwright celebrates no birthdays. That occasion is reserved for the Festival of the Northern Gradiance.”  
 
-“Yes, well, I think relegating it all to the start of a new year where some lightshow in the skies comes out to play is getting a bit dated these days. It’s been years since the last gift, so now’s a good time to remedy that.”  
+“Yes, well, I think relegating it all to the start of a new year where some lightshow in the skies comes out to play is getting a bit dated. It’s been years since your last gift, so now’s a good time to remedy that.”  
 
 Upon fully unwrapping the object, revealed to be a sword, Victor’s suspicion transformed into pure shock.   
 
@@ -539,13 +539,13 @@ Georg burst out a laugh and received them with a saluting wave of his own. “Ho
 
 Nadis silently waved back at them and nodded, which left Victor as the only one to disregard their salute. Stoic in the face, he stepped forward before the carriage and launched his breath into one loud command:  
 
-“The proceedings for the 4th successor’s exile shall now commence\!\!”  
+“The proceedings for the 4th successor’s exile shall now commence\!\! May it remind history of what paths our blood, and those who follow our blood, must never sink to\!\!”  
 
 The horses, both twins the color of a pitch black night, had just been found and fastened to the carriage.   
 
 “So, uh, how come Mother and Father didn’t show up for this?” asked Pendra.  
 
-“Both of them are busy in a sudden meeting regarding our trade routes, so Victor and I were asked to take their place for this procedure.” replied Georg. “Not like it matters much; it's sad this ceremony became brief. Rushing an execution's no good for one's health.”  
+“Both of them are busy in a sudden meeting regarding our trade routes, so Nadis and I were asked to take their place here.” replied Georg. “Not like it matters much; it's sad this ceremony became brief. Rushing an execution's no good for one's health.”  
 
 Nadis folded her arms. "Neither is a long winded means to whisk a prisoner off."  
 
@@ -651,9 +651,9 @@ Though this too, seemingly carried the sound of nonsense to her, Lily did not di
 
 “Did you try to convince Father and– wait, no, that wouldn’t have worked either, right?” she corrected herself.  
 
-“Nope. They were meaning to do this to him a long time ago.”   
+“It wouldn't,” said Pendra, shaking his head.
 
-“Well, if all those fights he’s caused are anything to go by, then, it makes sense. But…” Lily’s emotional struggle to keep her thoughts in line became more apparent as she rubbed her eyes with her hands. “Yeah, I didn’t like him either, but this? I just got back from the Highlands recently; the blizzards there are never something I’d wish upon anyone\! So why is he accepting it like that\!? It’s insane\!”  
+“hy…? Sure, there’s all those fights he’s caused, but…” Lily rubbed her eyes, her emotions a conflict of their own world. “Yeah, I didn’t like him either, but this? I just got back from the Highlands recently; the blizzards there are never something I’d wish upon anyone\! So why is he accepting it like that\!? It’s insane\!”  
 
 *“If someone could become a swordsman by swinging a sword at the air the right way for months on end, would this world need knights?”*  
 
