@@ -389,7 +389,7 @@ Georg stepped back with his hands up. “Take a hard sentence for once, little b
 
 Victor calmed himself with an iron clenching of a fist, then went back to sharpening his blades. “That ‘certain princess’ almost put his life in mortal peril. To bring them back together would be tantamount to ensuring his death. It is too great of a risk.”  
 
-“...But throwing him into Zantche, where there’s more Lambdaeins than elves, isn’t?” Georg   
+“...But throwing him into Zantche, where there’s more Lambdaeins than elves, isn’t?” 
 
 “The first princess, Qaine, carries a proper reputation backed by kindness and intellect. All Gerwyn needs to do is play the part of a good spouse to her.”  
 
