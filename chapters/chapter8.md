@@ -722,8 +722,8 @@ Shenael nearly grinned at Crideas’s praise, but uncertainty crept at her. “T
 
 Shenael had almost finished her meal by this point, so she put down her fork, wiped her mouth, and folded her hands out of a desire to contemplate.   
 
-“I guess it’s because…that time I spent in Ashwright as a kid just isn’t something I can forget about that easily. I’ve been having all these dreams where I relive fragments of those memories for a while now, and all this talk of them and Lambda likely getting into another war…*ergh*. Even after that whole history lesson I asked from Master Icarr about who King Sherman was before he rose to power, my head’s spinning from the whole slew of pros and cons to consider.  
-It’s not like I’m willing to accept Ashwright with open arms or anything. I don’t doubt Lambda’s prejudices, either, but I haven’t seen what that’s like personally, either.Master Icarr said it himself, this is about picking the least dangerous poison in the end. I guess in the end, I don’t understand what’s in each of the poisons.”  
+“I guess it’s because…that time I spent in Ashwright as a kid just isn’t something I can forget about that easily. I’ve been having all these dreams where I relive fragments of those memories for a while now, and all this talk of them and Lambda likely getting into another war…*ergh*. Even after that whole history lesson from Master Icarr about King Sherman was, I still don’t know what to say.  
+It’s not like I’m willing to accept Ashwright with open arms or anything. I don’t doubt Lambda’s prejudices, either, but I haven’t seen what that’s like personally, either. Master Icarr said it himself, this is about picking the least dangerous poison in the end.  Right now, I don’t understand what the poisons are made of.”  
 
 Crideas nodded in agreement and folded his arms. “In all fairness, the poison of a nation is perhaps volatile like little else in the world. Did Icarr also tell you about why Sherman committed patricide and usurped the throne?”  
 
@@ -784,11 +784,13 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 “What the–\!? Hey, come on\!\! It wouldn’t be *that* long\! There’s just a lot of material to cover\!”  
 
-“And you do naught but stretch it into hours; we’re not getting to sleep if you start.” Crideas put a resigned hand to his forehead. “Or did you forget *that one time* you were asked to tell the story of me introducing you to Kath before the vows?”   
+“And you do naught but stretch it into eons; we’re not getting to sleep if you start.” Crideas put a resigned hand to his forehead.   
 
-*Oh gods. Still can’t forget how those two hours felt like two days.* 
+“Or did you forget what happened when recounting how Father and Mother got together?” added Shenael.  
 
-“Bah, this night is still a young one, boy; surely you could spare at least one tale?" A smug, wolfish grin began to spread across his face. "It might help keep little Shen’s dreams about her *human boyfriend* at bay.”  
+“Oh, *gods*.” Her father put a resigned hand to his forehead. “Unbelievable, how our *Grand Master* here took a tale of *5 minutes* and stretched it into a fable of *2 hours*.”
+
+“Bah, this night is still a young one, boy; surely you could spare at least one tale?" A smug, wolfish grin began to spread across Rueltabre's face. "It might help keep little Shen’s dreams about her *human boyfriend* at bay.”  
 
 *This damned geezer–\!\!*  
 
