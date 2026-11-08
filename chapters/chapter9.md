@@ -616,9 +616,9 @@ He raised an irritated eyebrow whilst reviving the fake smile. “...And how, *p
 
 “Enough of this, both of you.” Gehenna firmly patted Lily’s head down and got between the both of them. “Lily, there is nothing we can say in the face of the truth. Pendra, no trace of a lie exists in your firsthand account, so I understand your frustration. But it is best we look on the bright side instead of stoking more bickers.”  
 
-“What bright side? Mercer’s been sent to die, big sis\!” Lily shouted.  
+“What bright side? Mercer’s been sent to die, big sis\!” cried Lily.  
 
-“...And?” Gehenna asked nonchalantly.   
+“...And?” asked Gehenna.   
 
 Pendra and Lily looked at her, wide-eyed. Even the few soldiers, practitioners of stoicism and involuntarily overhearing the ruckus, grew unnerved.  
 
@@ -650,7 +650,7 @@ Though this too, seemingly carried the sound of nonsense to her, Lily did not di
 
 “It wouldn't,” said Pendra, shaking his head.
 
-“hy…? Sure, there’s all those fights he’s caused, but…” Lily rubbed her eyes, her emotions a conflict of their own world. “Yeah, I didn’t like him either, but this? I just got back from the Highlands recently; the blizzards there are never something I’d wish upon anyone\! So why is he accepting it like that\!? It’s insane\!”  
+“Why…? Sure, there’s all those fights he’s caused, but…” Lily rubbed her eyes, her emotions a conflict of their own world. “Yeah, I didn’t like him either, but this? I just got back from the Highlands recently; the blizzards there are never something I’d wish upon anyone\! So why is he accepting it like that\!? It’s insane\!”  
 
 *“If someone could become a swordsman by swinging a sword at the air the right way for months on end, would this world need knights?”*  
 
