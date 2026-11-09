@@ -788,7 +788,7 @@ Much time had passed since dinner started. When all four of them were almost fin
 
 “Or did you forget what happened when recounting how Father and Mother got together?” added Shenael.  
 
-“Oh, *gods*.” Her father put a resigned hand to his forehead. “Unbelievable, how our *Grand Master* here took a tale of *5 minutes* and stretched it into a fable of *2 hours*.”
+“Oh, *gods*.” Her father put a resigned hand to his forehead. “Unbelievable, how our *Elder Master* here took a tale of *5 minutes* and stretched it into a fable of *2 hours*.”
 
 “Bah, this night is still a young one, boy; surely you could spare at least one tale?" A smug, wolfish grin began to spread across Rueltabre's face. "It might help keep little Shen’s dreams about her *human boyfriend* at bay.”  
 
