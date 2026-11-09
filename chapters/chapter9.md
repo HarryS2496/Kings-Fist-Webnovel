@@ -774,9 +774,7 @@ Her long locks of blonde hair starting to grey out, a face scarred by a long sla
 Other soldiers a fair distance from the confrontation gasped and gawked.  
 
 “G-General Thessein\!”   
-
 “It’s the general\!”  
-
 “F-finally\! She’ll save us from this wretch\!”  
 
 Her eyepatch this time was new, made of black leather with the insignia of a dragon’s maw at the center. “I take it the rebound to my old status never reached your ears, Lord Mercer Ashwright,” she said whilst folding her arms.  
