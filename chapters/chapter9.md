@@ -814,7 +814,6 @@ When the caged gate opened for his departure, multiple crossbows too, were at th
 The Highlands, a series of some of the tallest mountains the North had to offer, loomed beyond his path. The spring season’s warmth could only do so much against the permanent chills that lay before the ascending road.  
 
 “One thing before you go, Lord Mercer\!” General Thessein called out to him. “I can see that roaring fire in your eyes hasn’t changed, and they look at those mountains as mere fuel\!   
-
 So, with those flames, *what do you wish to carve into this world?*”  
 
 It was only at this final question that he would stop. Though he did not turn around, he uttered an echoing declaration in the deafening silence.  
