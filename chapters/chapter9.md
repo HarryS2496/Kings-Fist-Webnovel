@@ -24,15 +24,14 @@ Though Ardhari was happily basking in the sun as they walked, Ramanari apprehens
 
 “You and I heard about one of the Xaedean princesses and her squadron on the brink of death. If even they struggled against those rogues, then…” Unwilling to commit to cynicism, Ramanari dared not finish the sentence.   
 
-Ardhari began to count his points with the fingers on his right hand. “Rama. We’ve heard they’re being pushed back from being in too many places at once; these brigands are spread thin. Not like they can just assemble members back at the seas or find new recruits in a flash.   
-
-If there’s anything we both know about true pirates, they carry too much vim to join under the banner of one whose name in stands equal to rat shit.”   
+Ardhari began to count his points with the fingers on his right hand. “Rama. We’ve heard they’re being pushed back from being in too many places at once; these brigands are spread thin. 
+Not like they can just assemble members back at the seas or find new recruits in a flash. If there’s anything we both know about true pirates, they carry too much vim to join under the banner of one whose name in stands equal to rat shit.”   
 
 He kicked a nearby rock to the side and scoffed. “*Fleetway Verde.* Like that’ll ever soil some britches.”  
 
 “You’re more confident today.” Ramanari was unsure how to feel about the extra bravado Ardhari sharpened himself with.   
 
-“I mean, *yeah*, I have to be\! If she doesn’t show up with anything for this next shipment, ARKH will be 6 leagues in a ditch, and I’ll die a *foreign beggar\!*” Ardhari shouted. To keep his calm could only last so long in such circumstances.  
+“I mean, *yeah*, I have to be\! If *she* doesn’t show up with anything for this next shipment, ARKH will be 6 leagues in a ditch, and I’ll die a *foreign beggar\!*” Ardhari shouted. To keep his calm could only last so long in such circumstances.  
 
 Ramanari immediately gripped his scimitar machete.  
 
