@@ -592,7 +592,7 @@ The queen had gotten up from the sofa and slowly walked towards him, each step a
 
 “As your father *said*,” said Beatrice, voice low and furious, “*this* is the last straw to end *all* last straws. Five months is far too generous of a punishment; I suggest your exile be extended to six. How does that sound, dear?”   
 
-“Exact as what I would decree.” Sherman replied while writing more notes.  
+“Good,” said Sherman.  
 
 “Good.” She gave the room a quick scan, then turned to Gerwyn and Pendra. “The resolve you two have to defend your brother is worthy of admiration. Unfortunately, this is a final decision your father and I will not be changing our minds on.”   
 
